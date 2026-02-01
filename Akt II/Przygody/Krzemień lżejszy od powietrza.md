@@ -1,0 +1,1 @@
+Odkrywkowa kopalnia niedaleko północnego miasta, gdzie Kościelnicy starają się zgromadzić wyjątkową skałę, której okruchy w pełni księżyca zaczynają się wznosić nie przyciągnięte, a o własnej sile, przyjmując stan nieważkości.
