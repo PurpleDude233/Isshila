@@ -1,1 +1,1 @@
-Eteryjska kartografka prosi o pomoc w zmapowaniu siedmiu krain
+Eteryjska kartografka prosi o pomoc w zmapowaniu okolicy od obozu

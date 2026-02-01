@@ -1,0 +1,1 @@
+Powrót kartografki. Pragnie przetestować hipotezę, że wyspa zmienia się ponieważ podlega wyobrażeniom mieszkańców o niej, w tym celu chce wyruszyć do pobliskich wsi zebrać informacje od lokalsów o tym co jest w okolicy.

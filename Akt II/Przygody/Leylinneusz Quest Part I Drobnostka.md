@@ -1,0 +1,1 @@
+Ekscentryczny cudzoziemiec zlecił wam odnaleźć niepozorną skałę na szczycie drugiego najwyższego wzgórza z prośbą o wyręczenie go w siedzeniu na nim przez parę godzin.

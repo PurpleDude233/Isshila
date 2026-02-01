@@ -1,1 +1,1 @@
-Podróż z kościelną kartografką mę
+Kartografka chce przetestować zasłyszaną plotkę o podziemnej Isshili, i akurat udało jej się znaleźć konwencjonalne wejście. Nie chce użerać się z żargonem i rygorem jej braci w wierze, więc zwraca się o pomoc do znanych jej poszukiwaczy przygód by razem wyruszyć poznać Isshilę od środka.

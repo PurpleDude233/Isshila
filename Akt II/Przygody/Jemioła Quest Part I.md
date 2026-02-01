@@ -1,0 +1,1 @@
+Docierają do druidzkiego kręgu, który akurat jest w trakcie palenia jemioły. Zostają zaproszeni na rozmowę ze starszym druidem tego kręgu, który wyjaśnia czemu to robią. Potencjalnie potyczka z pomniejszym jemiołakiem i okazja do pogłębienia planu lyry o zdobyciu owocu jemioły.
