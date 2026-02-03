@@ -1,0 +1,1 @@
+Pokonanie bestii i znalezienie pierścienia vo zapewne prowadzi do [[Eteryci Quest - Krzemień lżejszy od powietrza|Kłesta Eterytów]] albo Kłesta eterytów 2
