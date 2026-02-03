@@ -1,0 +1,9 @@
+Gdy śpiew ptaków ucichł a żyzne ziemie przykrył śnieżny kożuch, pewien młodzieniec o druidzkim talencie pobierał nauki u swojego mistrza. W owym czasie mistrz nauczał go i resztę podopiecznych przeróżnych imion wichrów i rzek, wzgórz i bagien. Młodzieniec, który dobrze już znał wszystkie imiona sosen, mokradeł i strumyków westchnął głęboko, znudzony kazaniami. “Czemu mamy tylko słuchać (o imionach przyrody), skoro możemy ją sami zapytać i poznać (imiona)?”, zastanawiał się, lecz jego nauczyciel nie udzielił mi żadnej odpowiedzi, która ugasiłaby jego zapał. Uknuł więc przebiegły plan i nazajutrz wraz z trójką innych uczniów udali się do jednego z kamiennych kręgów swojego ermitażu, gdzie zaczęli odprawiać czarodziejski rytuał. 
+
+  
+
+Młodzieniec przywołał kolejno imiona wichru, żeby strącił z drzew lodową powłokę, słońca, żeby rozpuściło zaspy i na koniec rzek, żeby zabrały zimę daleko ku morzu. Wnet zerwał się wiatr i rozbłysło niebo, a wokół eremu zaczęłu gromadzić się burzowe chmury. Młodzieniec nie zląkł się i nie przerwał swojego śpiewu, groźnie spoglądając na każdego ze swych braci co by nie stchórzyli. Kiedy jedno z otaczających ich drzew złamało się pod ciężarem czaru, objawił się przed nimi Stróż Zimy. Skóra jego była ciemna i szorstka jak korzenie wiedźmy, a w miejscu głowy widniał wieniec z konarów, niczym czarne słońce na szarych niebie. Młodzieńcy ze zgrozą padli na kolana przed stróżem, błagając rozgniewanego ducha o litość. Tylko najstarszy z nich stanął mu na przeciw. Stróż przebaczył trzem chłopcom, ale dumnego druida chwycił swoją skrzypiącą ręką i porwał ku niebu. 
+
+  
+
+Następnego dnia młodzieniec zbudził się pośród cierni, obdarty z druidzkich szat i, co gorsza, wspomnień. Nie wrócił już do eremu, zbyt się wstydził. Przerażony po dziś chodzi po lasach i puszczach, na nowo ucząc się wszystkich imion dziczy.
