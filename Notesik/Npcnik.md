@@ -14,6 +14,6 @@ Mysza(??) - Handlarka Ludźmi
 Oskolarz(???) - Oschły Wężoszczur
 Paweł(Paweł) - Goły Outsider
 Siobhan(Szawan) - Dead Girlfriend
-Síle(Szile/a?) - Piersiasta Handlarka
+[[Síle]](Szile/a?) - Piersiasta Handlarka
 Stara Baba(???) - Skora Śmierci
 
