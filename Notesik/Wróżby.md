@@ -1,22 +1,16 @@
-**
+## RHAZANI
 
-RHAZANI
-
-  
-
-Koń: 
+### Koń: 
 
 Widzę w mętnej przyszłości pierścień ci pisany,
 
- z rąk rodziców na twą przekazany. -
+z rąk rodziców na twą przekazany. -
 
 Kawaler niejasny, z umaszczenia blady, 
 
 może cudzoziemiec, pójdziesz w ojca ślady?
 
-  
-
-Siobhan: 
+### Siobhan: 
 
 Podążając tropem przez ciemne knieje 
 
@@ -26,14 +20,9 @@ Podszept twym płomieniem zachwieje
 
 Ot, w ramach przyjaznego gestu.
 
-  
-  
+## BLAITHIN
 
-BLAITHIN
-
-  
-
-Koń: 
+### Koń: 
 
 Dziwny ogród, pełen cierni, 
 
@@ -43,9 +32,7 @@ słychać coś, stukanie rózgi,
 
 Kustosz gładzi młode łuski.
 
-  
-
-Siobhan: 
+### Siobhan: 
 
 Po wszechczas milczący ci powie
 
@@ -53,9 +40,7 @@ skąd przyszło życiodajne tchnienie. 
 
 Czy uniesiesz ręce, czy zapuścisz korzenie?
 
-  
-
-Siobhan (extra spicy): 
+### Siobhan (extra spicy): 
 
 W noc kiedy księżyc zniknie w toni, 
 
@@ -63,14 +48,9 @@ w świetle pochodni i dymu gorzkiej woni, 
 
 spotka cię z piękną panną w tańcu uścisk dłoni ;))))
 
-  
-  
+## ELIAN 
 
-ELIAN 
-
-  
-
-Koń: 
+### Koń: 
 
 W iskier gęstwinie tli się karzeł bezrogi,
 
@@ -80,9 +60,7 @@ Chce jedynie palców, ścięgien, kolan, ramion, 
 
 by stać o własnych siłach i móc pobiec za nią.
 
-  
-
-Siobhan: 
+### Siobhan: 
 
 Razem na bezdrożach, w tyle słupy dymu,
 
@@ -92,19 +70,10 @@ Raz los w rękach, już nie w rękach losu
 
 Daremne starania, grzmią bębny marszowe
 
-  
-  
+## LYRA
 
-LYRA
+### Koń: 
+Niewiele widzę, coś jest, być może kto? Jakaś… kobieta, cudzoziemka sądząc po karnacji, w pstrokatych szatach, tka kolory niesione przez wiatr.
 
-  
-
-Koń: Niewiele widzę, coś jest, być może kto? Jakaś… kobieta, cudzoziemka sądząc po karnacji, w pstrokatych szatach, tka kolory niesione przez wiatr.
-
-  
-  
-
-Siobhan: Uhh… czy jesteś pewna, że nie masz lada moment umrzeć?
-
-  
-**
+### Siobhan: 
+Uhh… czy jesteś pewna, że nie masz lada moment umrzeć?
