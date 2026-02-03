@@ -1,3 +1,4 @@
+### Rhazani przypomnienie
 ekscytacja w głosie wraz z obietnicą nagrody przewyższającej wszelkie marzenia
 przytulenie matki i jej słowa "to będą nasze ostatnie łowy"
 podróż pełną nadziei i cichego napięcia
@@ -15,10 +16,6 @@ i potem pustkę która pozostała z nią aż do dziś
 
 [[Zwiastunki Pstrokatego Nieba]]
   
-Anbandraoi
-
-  
-W niektórych wierzeniach łączy się tę trójcę z trzeba kobiecymi druidkami. W szczególności bliskie są im ich córki, draoithe mora trzeciej, czwartej i piątej z druidzkich przestróg, dzielą bowiem z nimi nie tylko płeć, ale szczególne zrozumienie dla mroku i prawd które skrywa. Trzy więc księżyce i trzy draoimory składają się na Anbandraoithe (wielkie kobiety druidki), a każda Anbandraoi łączy się w parę z jednym z księżyców, Matka.**
 
 rzeźbienie figurek z pomocą papy niedźwiedzia
 feda - nazwa run
@@ -30,7 +27,7 @@ lyra - ruis - /risz/
 ołtarzyk na którym już znajdują się dziesiątki małych prostych figurek, świece postawione wśród nich podświetlają
 
 
-Ołtarzyk z figurkami
+### Ołtarzyk z figurkami
 
 W wysłużonym namiocie obok stołów, przy których wesoła gawiedź żłobiła drewniane figurki swoich bliskich i pociech, stoi wiekowa misa, przyozdobiona wzorzystymi węzłami. Misa napełniona była wodą, a na jej dnie jawił się malowany księżyc. Uczestnicy, kiedy uznali, że wotywna figurka wystarczająco przypomina im ich brakującego bliskiego, podchodzili kolejno do misy, namaczali figurkę w poświęconej uprzednio przez druidzkiego mistrza wodzie i stawiali figurkę skierowaną w stronę naczynia, żeby i na nią spłynęło błogosławieństwo pożegnania żebraczki. Co jakiś czas druid-akolita musiał uzupełniać naczynie, jako że ci bardziej niezdarni goście rozchlapywali wodę niezgrabnym gestem.
 
@@ -39,11 +36,6 @@ W wysłużonym namiocie obok stołów, przy których wesoła gawiedź żłobiła
 pojawia się szawan
 tańczy
 komplementuje wszystkich
-
-rhazani
-elian
-lyra
-blaithin
 
 prowadzi ich do wozu bajarza
 

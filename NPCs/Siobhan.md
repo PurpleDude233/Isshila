@@ -1,0 +1,1 @@
+I’ll be your girlfriend tonight, słodka, kokietka, ale nie pożądająca. Służy za towarzyszkę zabaw na festynie i prowadzi graczy do kolejnych atrakcji. Przeznaczonym jej jest śmierć w Zagajniku przy lidryńskim relikcie z rąk Cursemongera.
