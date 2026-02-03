@@ -31,5 +31,8 @@ _- Twoja podróż zacznie się po Pożegnaniu Żebraczki…_
 
 
 ### Wydarzenia w trakcie Kampanii
-
+spotkanie się z jemiołą
+zestawienie ze swoją śmiertelneścią
 ### Ważne momenty
+Śmierć Siobhan
+Otrzymanie figurki
