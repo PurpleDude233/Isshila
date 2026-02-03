@@ -15,7 +15,7 @@ i potem pustkę która pozostała z nią aż do dziś
 
 --
 
-Zwiastunki pstrokatego nieba
+[[Zwiastunki Pstrokatego Nieba]]
 
   
 
@@ -125,4 +125,3 @@ Dziedzic obruszyl się, czy to nie wina jego bliskich, że go porzucili? Kostuch
 – Zguba! Zgubiłeś ich i los wyda wyrok czy kiedykolwiek powrócą. Ale wiedz jeno, że choćby wrócili za rok, za miesiąc, choćby jutro, nigdy cię już nie zobaczą! 
 
 Na te słowa kostucha popędziła ku niemu, a jej ciemny płaszcz przesłonił widok dziedzicowi, po czym zniknęli we dwoje.**
-![[Pasted image 20251112092303.png]]
