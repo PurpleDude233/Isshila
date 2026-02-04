@@ -1,0 +1,1 @@
+Lidryńskie narzędzie do przemierzania wyspy.

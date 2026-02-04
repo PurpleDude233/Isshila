@@ -1,1 +1,7 @@
-Członkowie
+**Członkowie:**
+
+**Miejsca:**
+
+**Wątki:**
+
+**Lore:**
