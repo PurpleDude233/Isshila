@@ -1,0 +1,1 @@
+Rozległa kraina pod powierzchnią Isshili złożona z jaskiń, komór i sieci korytarzy otaczających lidryńskie mechanizmy.
