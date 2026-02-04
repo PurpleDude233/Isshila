@@ -1,0 +1,1 @@
+Sok pozyskiwany z drzew pamięci pielęgnowanych przez druidów. Służy za nośnik informacji i pozwala na wchłonięcie wiedzy w niej zawartą przez konsumpcję bądź inhalację. Utwardzana w przypominającą żywicę substancję w celu łatwiejszego przechowywania. Archiwistów wiedzy oskołowej nazywa się "Oskolarzami".

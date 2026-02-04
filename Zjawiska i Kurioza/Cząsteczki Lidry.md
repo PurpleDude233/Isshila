@@ -1,0 +1,1 @@
+Niewielkie wyładowania energii wydobywającej się z serca wyspy o charakterystycznej, bladolawendowej barwie. Swego rodzaju zanieczyszczenie magiczne, za którego filtrację odpowiada Księżyc/Księżyce Isshili. 
