@@ -16,3 +16,7 @@ Gracze zaczynają w namiocie Sile, która wyjaśnia im zagrożenia płynące z z
 
 Część 2: Ku Eremowi
 
+Część 3: Cian
+
+Część 4?: Ku Katabazji?
+
