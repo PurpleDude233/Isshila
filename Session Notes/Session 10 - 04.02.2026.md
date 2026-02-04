@@ -20,8 +20,9 @@ Część 2: Ku Eremowi
 
 Część 3: Cian
  
-
+Krew na waszych rękach to nic w obliczu skazy na waszych duszach. Dobrze wam radzę, bom miły i cierpliwy, tu gdzie stąpacie śmierć to sprawa najwyższej wagi. Ten cudzoziemiec... żal wielki czuję na myśl o tym, co go spotkało. Niech wystąpi przed was ten, kto jest winny mu jego żywota. (ej a co jeśli cian ich pokieruje gdzieś żeby odpokutował jeden z nich (killer) zabicie garte? wtedy mógłby powiedzieć następujące) obmyj ciało i ducha swego
 
 Część 4?: Ku Katabazji?
 
 
+WAŻNE, W TRAKCIE COMBATU NIECH UŻYJE SKILLA KTÓRY ICH PRZEKLNIE
