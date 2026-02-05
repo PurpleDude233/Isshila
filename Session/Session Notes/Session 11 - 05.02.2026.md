@@ -15,11 +15,13 @@ Zastanówcie się nad tym jakie będą wasze następne kroki
 Wasza ścieżka wije się i plącze niczym węże których los splątany jest na wieczność
 
 ### Część 2: Cursemonger Combat
+Her Last Breath
+Zaćmienie, ciemność rozrywa nieba w pół, z księżyca pojawia się niewielka sylwetka
+w mgnieniu oka 
 
 
 
-
-### Część 3: Cian
+### Część 3: The Entrance
  
 
 
