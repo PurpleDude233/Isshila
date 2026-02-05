@@ -15,12 +15,16 @@ Zastanówcie się nad tym jakie będą wasze następne kroki
 Wasza ścieżka wije się i plącze niczym węże których los splątany jest na wieczność
 
 ### Część 2: Cursemonger Combat
-Her Last Breath
+**Her Last Breath**
 Zaćmienie, ciemność rozrywa nieba w pół, z księżyca pojawia się niewielka sylwetka
 w mgnieniu oka 
+**The Cursemonger**
+Początek Walki
+Przy nietrafieniu rzegotanie wraz z powstrzymaniem ostrza tuż przed gardłem/sercem/etc, po czym spojrzenie na następny cel
 
+świst/krzyk prz każdym ruchu
 
-
+wyrastające kolce które uderzają w casterów???
 ### Część 3: The Entrance
  
 
