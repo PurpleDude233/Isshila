@@ -32,7 +32,10 @@ wyrastające kolce które uderzają w casterów???
 
 ### Część 3: The Entrance
  
-
+Wejście wyrwane z objęć skały
+lawendowe iskry migoczą i poruszają się z gracją
+masa kamienia przeplatając się i wijąc otwiera przed wami przejście
+ciemność ze światłem tworząc fascynujące wzory-
 
 
 
