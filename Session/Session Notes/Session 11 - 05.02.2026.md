@@ -20,11 +20,16 @@ Zaćmienie, ciemność rozrywa nieba w pół, z księżyca pojawia się niewielk
 w mgnieniu oka 
 **The Cursemonger**
 Początek Walki
+Klontwa na start
+
 Przy nietrafieniu rzegotanie wraz z powstrzymaniem ostrza tuż przed gardłem/sercem/etc, po czym spojrzenie na następny cel
 
 świst/krzyk prz każdym ruchu
 
 wyrastające kolce które uderzają w casterów???
+
+
+
 ### Część 3: The Entrance
  
 
