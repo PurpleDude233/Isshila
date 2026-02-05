@@ -14,8 +14,6 @@ umarł w strachu, nie można pozwolić aby ten strach niepokoił go po śmierci
 Zastanówcie się nad tym jakie będą wasze następne kroki
 Wasza ścieżka wije się i plącze niczym węże których los splątany jest na wieczność
 
-
-
 ### Część 2: Cursemonger Combat
 
 
