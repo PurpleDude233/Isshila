@@ -30,9 +30,12 @@ my mind escapes me
 
 #### Klątwa na start
 podłużny wijący się kształt przemieszcza się przez rzeczywistość ignorując wszelkie jej ograniczenia i zasady, w jednym momencie jest parą przemierzającą niebo nad wami, w kolejnym skałą która wraz z jego ruchem starzeje się i eroduje jakby tysiące lat zawarło się w tych paru chwilach 
-a potem jest na was, jest **wami** , wije się na waszej skórze, wykrzywiając ją i przesuwając się przez wasze mieśnie, kości, ścięgna, smakuje waszego strachu i delektuje się waszymi myślami. gdy po paru sekundach zamiera wraz z końcem jego ruchu przychodzi oszałamiający, obezwładniający ból
+a potem jest na was, jest **wami** , wije się na waszej skórze, wykrzywiając ją i przesuwając się przez wasze mieśnie, kości, ścięgna, smakuje waszego strachu i delektuje się waszymi myślami. Zakorzenia się w waszych ciałach zapuszczając głęboko swe korzenie
+Czujecie jak jego kręgi zespalają się z waszymi kośćmi, a odcisk jego ciemnych łusek zostawia trwałe piętno na waszych nadgarstkach.
+gdy po paru sekundach zamiera wraz z końcem jego ruchu przychodzi oszałamiający, obezwładniający ból
 niemalże tak szybko jak się pojawił - znika
 ale wąż pozostaje, nie tylko jako znak na ciele ale też jako samego ciała część
+
 
 #### Początek Walki
 Przy nietrafieniu rzegotanie wraz z powstrzymaniem ostrza tuż przed gardłem/sercem/etc, po czym spojrzenie na następny cel
