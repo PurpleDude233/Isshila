@@ -17,17 +17,24 @@ Wasza ścieżka wije się i wikła  niczym żmije szkarłatne których los splą
 
 ### Część 2: Cursemonger Combat
 **Her Last  Breath**
+
 Jasne światło dnia zostaje przesłonięte przez ogromny kształt,
 ciemność rozrywa niebo w pół rozlewając się po nim niczym atrament
 wraz z ciemnością pojawiają się gwiazdy( które z każdą kolejną chwilą wydają się przybliżać ???)
 z księżyca pojawia się niewielka sylwetka
+
 jestem jakiś zagubiony kurwa
 my mind escapes me
-**The Cursemonger**
-Początek Walki
-Klontwa na start
-podłużny wijący się kształt przemieszcza się przez rzeczywistość ignorując wszelkie jej ograniczenia i zasady, w jednym momencie jest parą przemierzającą niebo nad wami, w kolejnym skałą która wraz z jego ruchem starzeje się i eroduje jakby tysiące lat zawarło się w tych paru chwilach a potem jest na was, jest **wami** , wije się na waszej skórze, wykrzywiając ją i przesuwając się przez wasze mieśnie, kości, ścięgna, smakuje waszego strachu i delektuje się waszymi myślami 
 
+**The Cursemonger**
+
+#### Klątwa na start
+podłużny wijący się kształt przemieszcza się przez rzeczywistość ignorując wszelkie jej ograniczenia i zasady, w jednym momencie jest parą przemierzającą niebo nad wami, w kolejnym skałą która wraz z jego ruchem starzeje się i eroduje jakby tysiące lat zawarło się w tych paru chwilach 
+a potem jest na was, jest **wami** , wije się na waszej skórze, wykrzywiając ją i przesuwając się przez wasze mieśnie, kości, ścięgna, smakuje waszego strachu i delektuje się waszymi myślami. gdy po paru sekundach zamiera wraz z końcem jego ruchu przychodzi oszałamiający, obezwładniający ból
+niemalże tak szybko jak się pojawił - znika
+ale wąż pozostaje, nie tylko jako znak na ciele ale też jako samego ciała część
+
+#### Początek Walki
 Przy nietrafieniu rzegotanie wraz z powstrzymaniem ostrza tuż przed gardłem/sercem/etc, po czym spojrzenie na następny cel
 
 świst/krzyk prz każdym ruchu
@@ -37,15 +44,15 @@ wyrastające kolce które uderzają w casterów???
 
 
 ### Część 3: The Entrance
- 
+**Split The Earth**
 Wejście wyrwane z objęć skały
 lawendowe iskry migoczą i poruszają się z gracją
 masa kamienia przeplatając się i wijąc otwiera przed wami przejście
-ciemność ze światłem tworząc fascynujące wzory
+ciemność ze światłem tworzą fascynujące wzory
 
 
 
-### Część 4?: Ku kniei! i potem Katabazji?
+### Część 4?: Ku kniei! i potem Katabazji? (Katabasis)
 
 
 
