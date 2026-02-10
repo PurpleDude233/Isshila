@@ -8,14 +8,15 @@
 
 
 ### Część 1: Cian Ending
-Ciało Gartego pokrywają kwiaty 
+**Siobhans Demise**
+Ciało Gartego pokrywają kwiaty (niezapominajki)
 Cian mówi coś o tym że musi zastanaowić się nad tym co dalej z jego ciałem
-umarł w strachu, nie można pozwolić aby ten strach niepokoił go po śmierci
+umarł w strachu, nie można pozwolić aby ten strach trzymał się go po śmierci
 Zastanówcie się nad tym jakie będą wasze następne kroki
-Wasza ścieżka wije się i plącze niczym węże których los splątany jest na wieczność
+Wasza ścieżka wije się i  niczym żmije szkarłatne których los splątany jest na wieczność
 
 ### Część 2: Cursemonger Combat
-**Her Last Breath**
+**Her Last  Breath**
 Zaćmienie, ciemność rozrywa nieba w pół, z księżyca pojawia się niewielka sylwetka
 w mgnieniu oka 
 **The Cursemonger**
