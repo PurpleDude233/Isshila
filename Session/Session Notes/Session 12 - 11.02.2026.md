@@ -20,17 +20,6 @@ scena nocy w karczmie, może wybudzenie któregoś z nich z koszmaru zabijania s
 5. (kończy się jego żywotność, bo przeklął graczy)
 
 ### Część 2: Cursemonger Combat
-**Her Last  Breath**
-
-Jasne światło dnia zostaje przesłonięte przez ogromny kształt,
-ciemność rozrywa niebo w pół rozlewając się po nim niczym atrament
-wraz z ciemnością pojawiają się gwiazdy( które z każdą kolejną chwilą wydają się przybliżać ???)
-z księżyca pojawia się niewielka sylwetka
-
-jestem jakiś zagubiony kurwa
-my mind escapes me
-
-**The Cursemonger**
 
 #### Klątwa na start
 podłużny wijący się kształt przemieszcza się przez rzeczywistość ignorując wszelkie jej ograniczenia i zasady, w jednym momencie jest parą przemierzającą niebo nad wami, w kolejnym skałą która wraz z jego ruchem starzeje się i eroduje jakby tysiące lat zawarło się w tych paru chwilach 
@@ -39,6 +28,12 @@ Czujecie jak jego kręgi zespalają się z waszymi kośćmi, a odcisk jego ciemn
 gdy po paru sekundach zamiera wraz z końcem jego ruchu przychodzi oszałamiający, obezwładniający ból
 niemalże tak szybko jak się pojawił - znika
 ale wąż pozostaje, nie tylko jako znak na ciele ale też jako samego ciała część
+
+
+**Her Last  Breath**
+z księżyca pojawia się niewielka sylwetka
+
+**The Cursemonger**
 
 
 #### Początek Walki
