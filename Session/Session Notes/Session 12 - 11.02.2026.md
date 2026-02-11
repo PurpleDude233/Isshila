@@ -3,7 +3,8 @@ Proponuję time skipa dzisiaj, żeby zrobić trzy sceny:
 zejście do kniei (bez fajerwerków),
 spotkanie późnym popołudniem eliana i rhazani, może do nich dołączyć powracająca rhazani i blahin,
 scena nocy w karczmie, może wybudzenie któregoś z nich z koszmaru zabijania siobhan, moze miał go ktoś, kogo przy tym nie było?
-4.A. Trochę horror doświadzcenie karczmy nocą, korytarze się dłużą, ściany drżą, spod ziemi wydobywa niskie, przytłaczające buczenie, po ich ciałach przebiega dreszcz, któy tylko narasta, mając na celu wypchać ich z karczmy. 4.B. Przenosimy element klątwy wężowej na teraz, węże kąsają ich jak śpią, elian moze wyczuć to pierwszy bo on medytuje a nei śpi, inny gracz moze powiedziec, ze widzial pełzający kształt jak ucieka przez okno, gracze idą w pościg za nim, okazjonalnie widząc jego przebłyski, z czasem cień wydaje się robić trochę dłuższy, trochę większy, trochę jakby tych ogonów zrobiło się więcej, aż zaprowadza ich na przeczesanie głęboko w lesie.
+4.A. Trochę horror doświadzcenie karczmy nocą, korytarze się dłużą, ściany drżą, spod ziemi wydobywa niskie, przytłaczające buczenie, po ich ciałach przebiega dreszcz, któy tylko narasta, mając na celu wypchać ich z karczmy. 
+4.B. Przenosimy element klątwy wężowej na teraz, węże kąsają ich jak śpią, elian moze wyczuć to pierwszy bo on medytuje a nei śpi, inny gracz moze powiedziec, ze widzial pełzający kształt jak ucieka przez okno, gracze idą w pościg za nim, okazjonalnie widząc jego przebłyski, z czasem cień wydaje się robić trochę dłuższy, trochę większy, trochę jakby tych ogonów zrobiło się więcej, aż zaprowadza ich na przeczesanie głęboko w lesie.
 
 1. bossfight
     
