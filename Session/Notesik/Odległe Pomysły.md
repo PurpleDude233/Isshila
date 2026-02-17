@@ -8,3 +8,6 @@ rozwalenie ściany
 
 do zrobienia
 teksty cursemongera i lidra talk
+
+
+
