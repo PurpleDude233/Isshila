@@ -14,7 +14,8 @@ nie wybrano celu
 
 Opis Lobby:
 okno z paraptem i barwioną szybą która przesłania i wykrzywia rzeczywistość
-pusty stół w kierunku którego Kon 
+pusty stół w kierunku którego Serwus idzie ze zmiotką
+
 Kokpit:
 bubi szenanigans
 Kamienna Mapa
