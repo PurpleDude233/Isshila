@@ -11,7 +11,8 @@
 Nawigacja odzywa się przez interkom:
 nie wybrano celu
 Kokpit:
-
+Kamienna Mapa
+Konserwacja:
 
 ### Część 2: XYZ
 
