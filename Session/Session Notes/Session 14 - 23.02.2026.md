@@ -31,7 +31,14 @@ Konserwacja:
 
 ### Część 2: Podróż przez dziką Isshilę
 
+**Secrets of the Forest**
 
+Tutaj dajemy graczom się napatrzeć na świat z góry, na czubki drzew i kłębiny liści, dać im trochę okazji na pogadanie tutaj i pozastanawianie się.
+
+
+W odpowiednim momencie przerwać na scenę opisywania wojujących krojącoskrzydłych, stadnie próbujących rozprawić się z większym przeciwnikiem (jakaś latająca chimera? niedźwiedź barkoskrzydły?) Znowu dać im tym pooddychać, któryś z instrumentów powie, że żadne z tych stworzeń nie zostało zaproszone na pokład, więc nie będzie mogło się na nim znaleźć, albo coś takiego informujące ich, że tu im nic nie grozi. Jakoś po tym jeden z nich wlatuje przez okno i zaczyna taranować wszystko na swojej drodze, dać grqaczom jakieś save'y, może okazję na reakcję, a po tym jak kazdy sie wykaże/polegnie Konserwacja wyprosi go z wehikułu, zdaje się na twojąwyobraźnię.
+
+Następnie podróżują dalej, przypominam że obecnie poruszamy się wozem z modułem skinny legs, więc czubki drzew co najwyżej skrobią spód wehikułu.
 
 
 ### Część 3: Postój (może noc?)
