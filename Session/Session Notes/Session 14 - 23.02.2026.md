@@ -42,12 +42,14 @@ Następnie podróżują dalej, przypominam że obecnie poruszamy się wozem z mo
 
 
 ### Część 3: Postój (może noc?)
- 
 
+Można zrobić, że pojazd stoi na noc, Konserwacja może poinformować graczy o tym, że choć pojazd normalnie może poruszać się o każdej porze dnia, ze względu na to, że to jego pierwszy rozruch od dłuższego czasu, to dalej musi nieco zebrać siły/naładować akumulatory. To czy czerpie energię z podziemi, słońca czy np. ruin lidry to już do dogadania. Dajemy graczom tutaj trochę forced przestrzeń na opierdalanie się, kiedy biwakują w lobby.
 
+Następnego dnia wyruszają, albo jak tak zadecydują albo jeśli zaplanują np. żeby ruszyć o świcie, to wtedy nawi tak zrobi.
 
 
 ### Część 4?: Zniszczone obozowisko
 
 
 
+roll credits
