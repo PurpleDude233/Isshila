@@ -22,7 +22,9 @@ schody prowadzące gdzieś na górę
 drzwi prowadzące może gdzieś na zewnątrz
 pusty stół w kierunku którego Serwus idzie ze zmiotką
 dziękuje za uratowanie
-Kokpit:
+
+Kokpit: Owalne pomieszczenie z czterema wielkimi, okrągłymi oknami skierowanymi na cztery strony świata. Na środku stół z cieniutkimi kręgami w skale. Z sufity zwisają przeróżne narzędzia z ciemnego, połyskującego metalu. Umocowane na okrągłej ramie soczewki powiększające nieruchomo czekają w rogach między okiennicami. Nawigacja wisi w powietrzu w stanie nieważkości, jej różowa chusta faluje od najmniejszych drgań powietrza. 
+
 bubi szenanigans
 Kamienna Mapa
 Konserwacja:
