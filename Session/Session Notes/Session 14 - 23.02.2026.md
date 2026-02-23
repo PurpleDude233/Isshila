@@ -27,18 +27,18 @@ bubi szenanigans
 Kamienna Mapa
 Konserwacja:
 
-### Część 2: XYZ
+### Część 2: Podróż przez dziką Isshilę
 
 
 
 
-### Część 3: Cian
+### Część 3: Postój (może noc?)
  
 
 
 
 
-### Część 4?: Ku kniei! i potem Katabazji?
+### Część 4?: Zniszczone obozowisko
 
 
 
