@@ -27,6 +27,7 @@ Kokpit: Owalne pomieszczenie z czterema wielkimi, okrągłymi oknami skierowanym
 
 bubi szenanigans
 Kamienna Mapa
+
 Konserwacja:
 
 ### Część 2: Podróż przez dziką Isshilę
