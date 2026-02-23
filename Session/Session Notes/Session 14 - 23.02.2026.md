@@ -25,6 +25,7 @@ dziękuje za uratowanie
 Kokpit:
 bubi szenanigans
 Kamienna Mapa
+
 Konserwacja:
 
 ### Część 2: XYZ
