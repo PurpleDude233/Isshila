@@ -6,7 +6,7 @@
 ### Handouty:
 [[Błogosławieństwo Archidiakona Katastiona]]
 [[Czterdziesty drugi raport siostry Igny Niekopcynki dla Eteryckiej Kompanii Misyjnej]]
-[[List do Beatris]]
+[[Niewysłany list do Beatris]]
 
 ### Część 1: Combat Aftermath
 pnącza więdną
