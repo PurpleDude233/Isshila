@@ -7,8 +7,10 @@
 
 
 
-### Część 1: [[Dobryneczek]]
-
+### Część 1: Syn Łowczyni
+walka z synem
+yada yada
+łowczyni pojawia się na klifie i ich przegania albo 
 
 ### Część 2: XYZ
 
