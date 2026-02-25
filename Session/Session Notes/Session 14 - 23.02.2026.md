@@ -49,8 +49,3 @@ Można zrobić, że pojazd stoi na noc, Konserwacja może poinformować graczy o
 Następnego dnia wyruszają, albo jak tak zadecydują albo jeśli zaplanują np. żeby ruszyć o świcie, to wtedy nawi tak zrobi.
 
 
-### Część 4?: Zniszczone obozowisko
-
-
-
-roll credits

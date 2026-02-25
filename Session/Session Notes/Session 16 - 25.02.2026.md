@@ -36,7 +36,3 @@ Zza namiotów widzą istotę z zakrwawionym pyskiem i pazurami
 
 
 
-### Część 4?: Ku kniei! i potem Katabazji?
-
-
-
