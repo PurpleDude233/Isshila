@@ -21,7 +21,7 @@ Plague Tale
 muzyka z inquistion któraś mogłaby być niezła
 
 czerwone podłóżne pióro
-zniszczo
+zniszczona klatka
 skład drewna, oleju, prycze 
 Notatki:
 -Błogosławieństwo i raport u kapitana wraz jego mieczem skrzynię z 4000 złota (sekretariusze)
