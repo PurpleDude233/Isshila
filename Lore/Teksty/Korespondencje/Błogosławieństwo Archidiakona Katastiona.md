@@ -15,4 +15,7 @@ Nie lękajcie się krzewić wiary w ciemnych sercach pogan. Jak powiadał patria
 
 Modlę się by wam nie zabrakło odwagi w waszej wyprawie w głąb, na niezbadane południe! Poślemy wam tuzin mężczyzn zdolnych uprawiać ziemię i dopatrywać trzody jak tylko dotrze nas wieść o odnalezieniu miejsca odpowiedniego na drugi posterunek. Do tego czasu, ojcze-kapitanie, może ojciec liczyć na mnie w sprawowaniu waszych obowiązków tutaj, na Pierwszym Posterunku. 
 
-Uires flammis patiundis meritae,
+Salvatio flammis patiundis meritae,
+
+Katastion
+Archidiakon Eteryckiej Kompanii Misyjnej z woli Biskupa Namascusa 
