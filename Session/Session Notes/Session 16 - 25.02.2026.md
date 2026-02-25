@@ -3,8 +3,10 @@
 [[Konserwacja]]
 
 ---
-
-
+### Handouty:
+[[Błogosławieństwo Archidiakona Katastiona]]
+[[Czterdziesty drugi raport siostry Igny Niekopcynki dla Eteryckiej Kompanii Misyjnej]]
+[[List do Beatris]]
 
 ### Część 1: Combat Aftermath
 pnącza więdną
@@ -15,7 +17,7 @@ muzyka z inquistion któraś mogłaby być niezła
 rozglądają się i znajdują miecz i skrzynię z 4000 złota
 
 
-### Część 3: Cian
+### Część 3: Obóz
  
 
 
