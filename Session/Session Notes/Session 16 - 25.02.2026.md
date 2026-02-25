@@ -16,7 +16,7 @@ wracamy do ostu podróży
 muzyka z inquistion któraś mogłaby być niezła
 rozglądają się i znajdują miecz i skrzynię z 4000 złota
 
-Kapelusz Admirała II Kompanii Handlowej Republiki Tanta
+Kapelusz Admirała II Kompanii Handlowej Republiki Tantalossy
 
 ### Część 3: Obóz
  
