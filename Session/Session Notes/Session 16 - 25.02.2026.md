@@ -11,14 +11,26 @@
 ### Część 1: Combat Aftermath
 pnącza więdną
 wracamy do ostu podróży
+ocena obrażeń
+zaoferowanie napoju do obrażeń
+questions time
+
 
 ### Część 2: Obóz kościelników
+Plague Tale
 muzyka z inquistion któraś mogłaby być niezła
-rozglądają się i znajdują miecz i skrzynię z 4000 złota
+
+czerwone podłóżne pióro
+zniszczona klatka
+skład drewna, oleju, prycze 
+Notatki:
+-Błogosławieństwo i raport u kapitana wraz jego mieczem skrzynię z 4000 złota (sekretariusze)
+-List do beatris w śladznie ciągnięcia krwi
 
 Kapelusz Admirała II Kompanii Handlowej Republiki Tantalossy
 
-### Część 3: Obóz
+### Część 3: Walka
+Zza namiotów widzą istotę z zakrwawionym pyskiem i pazurami
  
 
 
