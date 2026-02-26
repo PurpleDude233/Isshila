@@ -1,1 +1,3 @@
+Frakcja: [[Pomocnicy Mamórgadh]]
+Miejsca: [[Dobryneczek]]
 Awangardowy Druid – trochę scammer z charakteru, przyszedł dobrze się bawić i pojeść, nie lubi rozmawiać o polityce, powiązany z magicznym ryneczkiem ale za chuja się nie zdradzi.
