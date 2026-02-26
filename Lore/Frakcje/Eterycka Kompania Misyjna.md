@@ -3,7 +3,8 @@
 [[Temir]]
 [[Igna]]
 [[Caldar]]
-
+[[Namascus]]
+[[Secretarius Ventris Bacchusias I]]
 **Miejsca:**
 [[Dun Thuaidh]]
 [[Pierwszy Posterunek]]
@@ -13,4 +14,4 @@
 
 **Lore:**
 
-Przedsięwzięcie kolonizacyjno-misyjne organizowane przez Septu
+Przedsięwzięcie kolonizacyjno-misyjne organizowane przez zgromadzenie żołądka z woli [[Secretarius Ventris Bacchusias I]]. 
