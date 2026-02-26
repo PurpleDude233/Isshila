@@ -13,3 +13,4 @@
 
 **Lore:**
 
+Przedsięwzięcie kolonizacyjno-misyjne organizowane przez Septu
