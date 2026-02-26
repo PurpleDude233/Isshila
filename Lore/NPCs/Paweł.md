@@ -1,0 +1,1 @@
+Miejsca: [[Dobryneczek]][[Dun Theas]]

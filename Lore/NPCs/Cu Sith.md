@@ -1,1 +1,2 @@
+Frakcja: [[Draoimorzy]]
 trzyma się na uboczu, głównie przy zajeździe i na targowisku, w pozostałych lokacjach przygląda się wszystkiemu spomiędzy drzew. Czuje obowiązek by nadzorować tegorocznych obchodów jako 8 druid, ale woli robić to z ukrycia. Gracze mogą go zauważyć jako podejrzanego. 

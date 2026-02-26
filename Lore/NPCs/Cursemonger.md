@@ -1,1 +1,2 @@
+Frakcja: [[Instrumenty Lidry]]
 Siobhan actually, aura farmi nad sadzawką gdzie “zabija” Siobhan. Przeklina graczy węzłem przymierza który pojawia się na ich ciałach i ucieka w stronę lidryńskich ruin, pozostawiając za sobą bladolawendową łunę.

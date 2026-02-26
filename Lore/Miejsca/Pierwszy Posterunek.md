@@ -1,0 +1,1 @@
+Baza wypadowa Eteryckiej Kompanii Misyjnej na północnej części Isshili, oddalona parę dni drogi od [[Dun Thuaidh]]. Prowadzą ją trygnizanie.
