@@ -4,5 +4,5 @@ Uświadomienie sobie realiów klątwy
 
 Obecność eterytów na wybrzeżu
 
-Zapowiedź Irlandzkiego Ruchu Oporu
+Zapowiedź neohitlera i poznanie Irlandzkiego Ruchu Oporu
 
