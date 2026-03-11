@@ -188,7 +188,9 @@ Przemierzacz
 
   
 
-Stwór to potężnych rozmiarów, zdolny przynieść zgubę wszelkiej bestii, być może z litości tylko wstrzymujący się od tegoż czynu. Na swoich chudych, twardych nogach przechadza się ponad koronami drzew, a czubki sosen ledwo drapią jego podbrzusze. Choć ciężki jest jak góra, ziemia wybacza mu to przewinienie, zalepiając jego ślady czyniąc go praktycznie niewytrapialnym. Rzadko się zdarza by stwór ten był gdzieś widziany, czasem tylko napotyka się w podaniach najstarszych  wsiowych bajarek wzmianki o nim i jego wędrówce przez wyspę. Wędruje dniami, po czym zasypia, czasem w szczerym polu, czasem u brzegu rzek i jezior, a czasem na gołej skale.
+Stwór to potężnych rozmiarów, zdolny przynieść zgubę wszelkiej bestii, być może z litości tylko wstrzymujący się od tegoż czynu. Na swoich chudych, twardych nogach przechadza się ponad koronami drzew, a czubki sosen ledwo drapią jego podbrzusze. Choć ciężki jest jak góra, ziemia wybacza mu to przewinienie, zalepiając jego ślady czyniąc go praktycznie niewytrapialnym. Rzadko się zdarza by stwór ten był gdzieś widziany, czasem tylko napotyka się w podaniach najstarszych  wsiowych bajarek wzmianki o nim i jego wędrówce przez wyspę. Wędruje dniami, po czym zasypia, czasem w szczerym polu, czasem u brzegu rzek i jezior, a czasem na gołej skale. 
+
+Nie jest wrogi żadnemu stworzeniu, ani żadne stworzenie nie zdaje się na niego polować. Powiada się, że zwiastuje zmiany, a w co poniektórych bardziej ponurych wizjach kres dostatku i nadejście srogich czasów. Stary druid z krainy wodospadów twierdzi, że to syn Jędzy, zbuntowany, za karę błąkający się po ziemi, w milczeniu wypatrujący swojej surowej matki na niebie.
 
 
 
