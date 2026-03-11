@@ -14,7 +14,7 @@ Te parę nocy, które spędziłam w lesie dały mi się we znaki, ale zgodnie z 
 
 (...)
 
-Miejsce to nazwali  fraoch cuis trá (Fria kosz tro), co oznacza mniej więcej nadmorskie wrzosowisko. Bardzo zdziwiło mnie to, gdzie to morze? Uznałam, że coś nie rozumiem albo że to niuansik językowy lokalnego dialektu. Dopiero następnego dnia, kiedy towarzyszyłam pasterzom przy wyprowadzaniu ich trzody dostrzegłam co kryło się się za stromym wrzosowiskiem. Piękne, bladobłękitne morze, bielejące im bliżej granicy nieba. Nie przypominam sobie, by ktoś wspominał w raportach ten fragment wybrzeża. Moje kolejne listy mogą przyjść z nieco większym opóźnieniem, ale w razie potrzeby będę stacjonowała jeszcze chwilę na wrzosowisku, a nóż znajdę raz jeszcze drogę do tego świeciącego, prapogańskiego obelisku, pod który zbłądziłam ostatnim razem.
+Miejsce to nazwali  fraoch cuis trá (Fria kosz tro), co oznacza mniej więcej nadmorskie wrzosowisko. Bardzo zdziwiło mnie to, gdzie to morze? Uznałam, że coś nie rozumiem albo że to niuansik językowy lokalnego dialektu. Dopiero następnego dnia, kiedy towarzyszyłam pasterzom przy wyprowadzaniu ich trzody dostrzegłam co kryło się się za stromym wrzosowiskiem. Piękne, bladobłękitne morze, bielejące im bliżej granicy nieba. Nie przypominam sobie, by-- ktoś wspominał w raportach ten fragment wybrzeża. Moje kolejne listy mogą przyjść z nieco większym opóźnieniem, ale w razie potrzeby będę stacjonowała jeszcze chwilę na wrzosowisku, a nóż znajdę raz jeszcze drogę do tego świeciącego, prapogańskiego obelisku, pod który zbłądziłam ostatnim razem.
 
 
 Siostra Igna z klasztoru Niekopcynek
