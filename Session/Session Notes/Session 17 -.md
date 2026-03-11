@@ -46,7 +46,7 @@ O cudzych ziemiach i cudzoziemcach
 Jest świat poza naszym światem, na innych ziemiach za inną wodą. Dziś zamieszkują go inni ludzie, o innych prawach. Czczą najwyższych pośród siebie, choć nie widzą w sobie nawzajem braci, zamiast tego mianując jednych bogami, bytami im niepodobnymi. To z ich ziem przyszedł kres naszych poprzedników.
 
   
-  
+  ZA DODATKOWYM KOSZTEM/RYZYKIEM, MOZE SIE ZDECYDOWAC ZEBY SIEGNAC PO WIECEJ UKRYTEJ WIEDZY:
 
 O Poprzednikach.
 
@@ -139,7 +139,7 @@ Stwór to potężnych rozmiarów, zdolny przynieść zgubę wszelkiej bestii, by
 
 
 
-### Część 3: 
+### Część 3: ``
  
 
 
