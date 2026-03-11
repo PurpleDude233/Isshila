@@ -9,9 +9,14 @@
 
 ### Część 1: Syn Łowczyni
 walka z synem
-yada yada
+
 łowczyni pojawia się na klifie i ich przegania albo patrrzy na śmierć syna
 
+LUB
+
+syn odchodzi
+
+rhazani zauważa 
 
 ### Część 2: Sen łowczyni
 Drop lore dla ekipy
