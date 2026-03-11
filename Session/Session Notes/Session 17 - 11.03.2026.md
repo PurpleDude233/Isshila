@@ -110,7 +110,7 @@ Kanibalizm
 
 Isshilanie jedzą też ludzi, głównie najstarszych i najmłodszych ze społeczności lub kogokolwiek spoza niej, kto akurat przybył na obchody i nie ma w święcie żadnej roli. Drymurzy czerpią moc z takich ofiar by móc potem wykrzywiać pogodę i żywioły wedle swego upodobania, zsyłając zimne wiatry i skwierczące upały z dala od swoich krain, nieraz za morze, nie licząc się z trudami sąsiadów.
 #### Blaithin
-????
+
 #### Rhazani
 Bagiennicy
 
