@@ -1,7 +1,10 @@
 ### Cast:
-[[Síle]]
-[[Cian]]
-[[Cursemonger]]
+[[Katastion]]
+[[Temir]]
+[[Caldar]]
+[[Nawigacja]]
+[[Konserwacja]]
+[[Łowczyni]]
 
 ---
 
