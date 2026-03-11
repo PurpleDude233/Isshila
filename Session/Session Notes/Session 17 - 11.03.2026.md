@@ -204,7 +204,7 @@ Nie jest wrogi żadnemu stworzeniu, ani żadne stworzenie nie zdaje się na nieg
 
 ### Część 3: ``
  
-
+Obóz tryg
 
 
 
