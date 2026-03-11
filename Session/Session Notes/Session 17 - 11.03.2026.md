@@ -202,13 +202,13 @@ Nie jest wrogi żadnemu stworzeniu, ani żadne stworzenie nie zdaje się na nieg
 
 
 
-### Część 3: ``
- 
-Obóz tryg
+### Część 3A: Obóz trygnizan 
+
+ Wartownik najpierw wychodzi im na przeciw
 
 
 
-### Część 4?: Ku kniei! i potem Katabazji?
+### Część 3B: Wrzosowisko
 
 
 
