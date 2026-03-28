@@ -1,1 +1,2 @@
-Przebojowy czaplo-ropuch, nosi perukę i stroi się na modłę cudzoziemczą, 
+Miejsca: [[Dun Thuaidh]]
+Przebojowy czaplo-ropuch, nosi perukę i stroi się na modłę cudzoziemczą, ma postawiony kołnierz, złote pierścionki i pantalony. Jego intencja to zbudowanie jak najlepszych stosunków z ich najbliższym sąsiadem, licząc, że w ten sposób zagwarantuje sobie i miastu wygodną pozycję na najbliższe lata. Zaniedbał kontakty z druidami przez co miasto od paru tygodni nie ma żadnego, a zbliża się [[Nadmorskie wiszące jeziora|przypływ]].

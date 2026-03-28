@@ -1,0 +1,1 @@
+Łasiczka z Dun Thuaidh należąca do frakcji radykałów. Choć obydwoje rodzice pochodzili z Kirisudarium, ponieważ urodziła się na Isshili nie przypominała żądnego z nich z wyglądu. Jej matka Benedicta Vriscu została oskarżona o zdradę na mężu
