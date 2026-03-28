@@ -1,0 +1,1 @@
+Przebojowy czaplo-ropuch, nosi perukę i stroi się na modłę cudzoziemczą, 
