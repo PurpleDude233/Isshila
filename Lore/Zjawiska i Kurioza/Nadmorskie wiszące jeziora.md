@@ -16,8 +16,12 @@ Układ strumieniowy
 
 1. Kolumnada - wody zbierają się w liczne, cienkie stożki na powierzchni morza i starają się pochwycić wiszące nad nią zbiorniki.
 2. Pajęczyna - między perełkami formuje się złożona sieć niewielkich strumyków, które po naruszeniu starają się powrócić do oryginalnego kształtu.
-3. 
+3. Podniebna rzeka - Ciężki i gruby strumień zapętlonej morskiej wody, wyglądający jak wielki łuk na oceanie. W mniejszej postaci może wyrastać też z większych aerakwenów.
 
 
 
 Układ basenowy/aerakwenowy
+
+1. Aerakwen mniejszy - powoli wchłaniające mniejsze perły masy wody, najczęściej występuje ich kilka w jednej grupie.
+2. Aerakwen właściwy - skończona postać aerakwenu, który zgromadził wszystkie pobliskie zbiorowiska i sam zaczyna powoli wynosić wodę morską ku sobie.
+3. Superjednostka - rzadkie i niebezpieczne zjawisko, pojawiające się kiedy przypływ zbliży do siebie dwa aerakweny właściwe. Ich zderzenie jest zjawiskowe i huczne, rozpryskując rozpędzone krople na odległości nawet kilkuset metrów, po czym gromadzące wody ze zdwojoną siłą. Superjednostka porusza się w stronę najbliższego skupiska wiszącej wody do momentu, w którym nie zostanie zepchnięta przez cykl pływów. Takie superjednostki powstają rzadko i najczęściej w miejscach gdzie nie ma druida, który przypilnowałby by do ich powstania nie doszło.
