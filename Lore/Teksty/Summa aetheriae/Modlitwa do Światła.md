@@ -16,6 +16,8 @@ Veni, Sanctissimus Luminalis
 
 Totus desiderabilis
 
+Veni
+
 ---  
 
 O błogosławione światło,
@@ -35,3 +37,5 @@ Nic godnego w stworzeniu, 
 Przybądź, Najświętszy Świetlisty
 
 Nad wszystek upragniony
+
+Przybądź.

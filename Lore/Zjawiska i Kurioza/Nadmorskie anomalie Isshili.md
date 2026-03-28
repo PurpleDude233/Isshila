@@ -1,0 +1,1 @@
+Ze względu na działanie trzech księżyców 
