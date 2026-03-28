@@ -10,3 +10,10 @@ Kluczową postacią w tym kręgu będzie **Valkin**, mężczyzna z Acron, który
 
 Oprócz tego w okolicy będzie okazja żeby gracze powtórzyli swoją ścieżkę do ryneczku i raz jeszcze spotkali się z tamtejszymi npcami, można coś pomyśleć tutaj.
 
+Potencjalne questy tej lokacji:
+
+- Odnaleźć zroszony owoc jemioły 
+- Wspomóc w walce z jemiołakiem, który przeniknął do eremu i odkrycie gdzie potencjalnie zaszczepił swoje nasiono
+- Revisit Dobryneczku
+- Zarejestrowanie nowego reliktu lidrynów
+- Na koniec Cu Sith I guess jako wprowadzenie do Aktu III
