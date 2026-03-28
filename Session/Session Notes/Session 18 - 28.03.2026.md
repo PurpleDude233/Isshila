@@ -1,24 +1,15 @@
 ### Cast:
+[[Katastion]]
+[[Temir]]
+[[Caldar]]
 [[Nawigacja]]
 [[Konserwacja]]
-[[Łowczyni]]
+
 
 ---
 
 
-
-### Część 1: Syn Łowczyni
-walka z synem
-
-łowczyni pojawia się na klifie i ich przegania albo patrrzy na śmierć syna
-
-LUB
-
-syn odchodzi
-
-rhazani zauważa 
-
-### Część 2: Sen łowczyni
+### Część 1: Sen łowczyni
 Drop lore dla ekipy
 #### Elian
 O draoimorach
@@ -199,13 +190,13 @@ Nie jest wrogi żadnemu stworzeniu, ani żadne stworzenie nie zdaje się na nieg
 
 
 
-### Część 3A: Obóz trygnizan 
+### Część 2A: Obóz trygnizan 
 
  Wartownik najpierw wychodzi im na przeciw
 
 
 
-### Część 3B: Wrzosowisko
+### Część 2B: Wrzosowisko
 
 
 
