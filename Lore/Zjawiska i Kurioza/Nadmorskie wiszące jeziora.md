@@ -6,7 +6,18 @@ W czasie odpływów masy wody po prostu przesuwają się z dala od wyspy, stanow
 
 To zjawisko kategoryzuje się na 3 układy
 
-Układ
+Układ perełkowy
 
 1. Drżonka - liczne, ale niewielkie krople wiszące w powietrzu, najczęściej powstają przy niskich klifach. Woda w fazie drżonki jest wyjątkowo wrażliwa na ruch i można ją nawet ręcznie zwrócić morzu. 
-2. 
+2. Nibyperełki - Krople zaczynają gromadzić się w chaotyczny układ od kilkudziesięciu do kilkuset różnej wielkości wodnych kuli, w tej postaci mogą  przeistoczyć się w perły bryzowe właściwe bądź zasilić inny układ (strumieniowy bądź basenowy)
+3. Perły bryzowe właściwe - Uformowane z równych rozmiarów wodne kule tzw. "perły" poruszają się regularnie zgodnie w rzędach poziomych i po łuku, po 2-3 liniach na grupę.
+
+Układ strumieniowy
+
+1. Kolumnada - wody zbierają się w liczne, cienkie stożki na powierzchni morza i starają się pochwycić wiszące nad nią zbiorniki.
+2. Pajęczyna - między perełkami formuje się złożona sieć niewielkich strumyków, które po naruszeniu starają się powrócić do oryginalnego kształtu.
+3. 
+
+
+
+Układ basenowy/aerakwenowy
