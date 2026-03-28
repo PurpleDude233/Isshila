@@ -1,0 +1,3 @@
+Miejsca: [[Dun Thuaidh]]
+
+Włochaty i rogaty starzec o pięknie plecionej brodzie. Jest jednym z ostatnich żyjących założycieli miasta. Znał niedawno zmarłego druida. Wieść o występkach hitlera zgasiła jego zapał i wolę walki, a rosnące poczucie winy przytłacza go od dekad (chyba dwóch bo jakoś wtedy umarł, nie?). Zastanawia się nad tym jaki los powinien spotkać miasta na wybrzeżu, czy powinny odciąć się od ładu wyspy żeby mogły lepiej jej strzec przed zewnętrznym  światem, czy jednak powinny dać się zmyć z powierzchni ziemi. Wie o nadciągającej [[Nadmorskie wiszące jeziora|superjednostce]].
