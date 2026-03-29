@@ -214,5 +214,8 @@ Katastion, pomszczenie Rufusa i odzyskanie insygni z łap Łowczycy.
 
 Generalnie overall pacing i story wypadnie lepiej jeśli tu pójdą najpierw, ale dajmy im wybór.
 
+Docierają w okolice wrzosowiska kiedy słyszą wołanie z zewnątrz, nawigacja informuje o anomalii drogowej, którą okazuje się być Siostra Igna. Ta proponuje im by wspólnie udać się do wsi na nadmorskim wrzosowisku, gdzie stacjonuje. We wsi spotykają druida wrzosowisk, który opowiada im co nieco o miejscu. Igna proponuje czy nie chcą spróbować jej pomóc następnego ranka z odnalezieniem drogi do lidryńskiego artefaktu. 
 
+### Część 4B: Sprawy Igny i Wrzosowiska
 
+Następnego dnia rano mająokazje zobaczyć wiszące w powietr
