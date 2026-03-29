@@ -194,12 +194,14 @@ Nie jest wrogi żadnemu stworzeniu, ani żadne stworzenie nie zdaje się na nieg
 
 ### Część 2: Podróży ciąg dalszy
 
-Kalibracja trasy, zarejestrowano dwie sygnatury podobne do poprzedniej, która zainteresowała bezdrożników. Jedna to ofc obóz trygnizan, druga to 
+Kalibracja trasy, zarejestrowano dwie sygnatury podobne do poprzedniej, która zainteresowała bezdrożników. Jedna to ofc obóz trygnizan, druga to albo jakieś star
 
 ### Część 3A: Do obozu trygnizan 
 
  Tropiciel  najpierw wychodzi im na przeciw
-Wartownik zatrzymuje ich przed wejściem, informując, że archidiakon Katastion odprawia teraz Liturgię 
+Wartownik zatrzymuje ich przed wejściem, informując, że archidiakon Katastion przeprowadza teraz Liturgię Ogniowego Języka i nikt nie może w tym czasie wejść do wewnętrznego kręgu obozu. Gracze poruszają się chwilę po obrzeżach, widząć paru innych ludzi pełniących wartę podczas gdy reszta uczestniczy w liturgii. W pewnym momencie przerywa im zwieńczenie liturgii, kiedy z postawionego na środku słupa (Turrignis/Turris Ignis, wieża ogniowa) wydobędzie się gromada ognistych języków, które zatańczą na niebie w kole, po czym polecą ku wszystkim wierzącym w obozie (można się zastanowić, czy jedna zawiśnie nad Elianem, trzeba mu powiedzieć, że takie błogosławieństwo istnieje), po czym zgaśnie. 
+
+Jeśli gracze zdecydu
 
 
 
