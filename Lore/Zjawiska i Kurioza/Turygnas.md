@@ -1,4 +1,4 @@
-Z łaciny Turris Ignis czyli słup ognia, to kluczowy element liturgii eteryckiej. To złożony mechanizm, który za pomocą identyfikatora symbolicznego (wiecznie palącego się ognia) nawiązuje połączenie z innymi postawionymi słupami. Służy przede wszystkim jako narzędzie do rozszerzania zasięgu systemu AetheriOS. 
+Z łaciny Turris Ignis czyli słup ognia, turygna bądź turygnas to kluczowy element liturgii eteryckiej. To złożony mechanizm, który za pomocą identyfikatora symbolicznego (wiecznie palącego się ognia) nawiązuje połączenie z innymi postawionymi słupami. Służy przede wszystkim jako narzędzie do rozszerzania zasięgu systemu AetheriOS. 
 
 Obsługa Turygnasu to złożona sztuka rytualna objęta surowym sacrum. Tylko wybrani namiestnicy kościelni, rytualiści oraz turygnitarze (inżynierowie i konserwatorzy słupa) mogą wchodzić z nim w bezpośredni kontakt. 
 
