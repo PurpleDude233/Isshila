@@ -194,7 +194,7 @@ Nie jest wrogi żadnemu stworzeniu, ani żadne stworzenie nie zdaje się na nieg
 
 ### Część 2: Podróży ciąg dalszy
 
-
+Kalibracja trasy, zarejestrowano dwie sygnatury 
 
 ### Część 3A: Do obozu trygnizan 
 
