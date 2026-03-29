@@ -190,13 +190,20 @@ Nie jest wrogi żadnemu stworzeniu, ani żadne stworzenie nie zdaje się na nieg
 
 
 
-### Część 2A: Obóz trygnizan 
-
- Wartownik najpierw wychodzi im na przeciw
 
 
+### Część 2: Podróży ciąg dalszy
 
-### Część 2B: Wrzosowisko
 
 
+### Część 3A: Do obozu trygnizan 
+
+ Tropiciel  najpierw wychodzi im na przeciw
+Wartownik zatrzymuje ich przed wejściem, informując, że archidiakon Katastion odprawia teraz Liturgię 
+
+
+
+### Część 3B: Ku wrzosowisku
+
+Generalnie overall pacing i story wypadnie lepiej jeśli tu pójdą najpierw, ale dajmy im wybór.
 
