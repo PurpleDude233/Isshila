@@ -1,0 +1,1 @@
+Z łaciny Turris Ignis czyli słup ognia, to kluczowy element liturgii eteryckiej. To złożony mechanizm, który za pomocą identyfikatora symbolicznego (wiecznie palącego się ognia) nawiązuje połączenie z innymi postawionymi słupami. Służy przede wszystkim jako narzędzie do rozszerzania zasięgu systemu AetheriOS.
