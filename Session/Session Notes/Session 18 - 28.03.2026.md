@@ -194,7 +194,7 @@ Nie jest wrogi żadnemu stworzeniu, ani żadne stworzenie nie zdaje się na nieg
 
 ### Część 2: Podróży ciąg dalszy
 
-Kalibracja trasy, zarejestrowano dwie sygnatury podobne do poprzedniej, która zainteresowała bezdrożników. Jedna to ofc obóz trygnizan, druga to albo jakieś star
+Kalibracja trasy, zarejestrowano dwie sygnatury podobne do poprzedniej, która zainteresowała bezdrożników. Jedna to ofc obóz trygnizan, druga to albo jakieś stare ognisko albo wioska na wrzosowisku
 
 ### Część 3A: Do obozu trygnizan 
 
