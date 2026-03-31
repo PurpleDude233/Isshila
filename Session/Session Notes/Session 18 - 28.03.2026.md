@@ -194,12 +194,12 @@ Nie jest wrogi żadnemu stworzeniu, ani żadne stworzenie nie zdaje się na nieg
 
 ### Część 2: Podróży ciąg dalszy
 
-Kalibracja trasy, zarejestrowano dwie sygnatury podobne do poprzedniej, która zainteresowała bezdrożników. Jedna to ofc obóz trygnizan, druga to albo jakieś stare ognisko albo wioska na wrzosowisku
-
+Kalibracja trasy, zarejestrowano dwie sygnatury podobne do poprzedniej, która zainteresowała bezdrożników. Jedna to ofc obóz trygnizan, druga to albo jakieś star
+Konserwacja głowa shenanigans
 ### Część 3A: Do obozu trygnizan 
 
- Tropiciel  najpierw wychodzi im na przeciw
-Wartownik zatrzymuje ich przed wejściem, informując, że archidiakon Katastion przeprowadza teraz Liturgię Ogniowego Języka i nikt nie może w tym czasie wejść do wewnętrznego kręgu obozu. Gracze poruszają się chwilę po obrzeżach, widząć paru innych ludzi pełniących wartę podczas gdy reszta uczestniczy w liturgii. W pewnym momencie przerywa im zwieńczenie liturgii, kiedy z postawionego na środku [[Turygnas|słupa]] (Turygna/Turrignis/Turris Ignis, wieża ogniowa) wydobędzie się gromada ognistych języków, które zatańczą na niebie w kole, po czym polecą ku wszystkim wierzącym w obozie (można się zastanowić, czy jedna zawiśnie nad Elianem, trzeba mu powiedzieć, że takie błogosławieństwo istnieje), po czym zgaśnie. 
+Tropiciel najpierw wychodzi im na przeciw
+Wartownik zatrzymuje ich przed wejściem, informując, że archidiakon Katastion przeprowadza teraz [[Liturgia Ogniowego Języka|Liturgię Ogniowego Języka]] i nikt nie może w tym czasie wejść do wewnętrznego kręgu obozu. Gracze poruszają się chwilę po obrzeżach, widząć paru innych ludzi pełniących wartę podczas gdy reszta uczestniczy w liturgii. W pewnym momencie przerywa im zwieńczenie liturgii, kiedy z postawionego na środku [[Turygnas|słupa]] (Turygna/Turrignis/Turris Ignis, wieża ogniowa) wydobędzie się gromada ognistych języków, które zatańczą na niebie w kole, po czym polecą ku wszystkim wierzącym w obozie (można się zastanowić, czy jedna zawiśnie nad Elianem, trzeba mu powiedzieć, że takie błogosławieństwo istnieje), po czym zgaśnie. 
 
 Jeśli gracze zdecydują się porozmawiać z Katastionem ten już wie, że drużyna ojca Rufusa poległa, ponieważ z wieży nie wyleciały ogniowe języki przeznaczone dla jego drużyny. Zależnie od tego jak szybko gracze skonfrontują go z tąinformacją będzie albo pozornie przyjazny albo głęboko podejrzliwy, że przyczynili się do tego.
 
