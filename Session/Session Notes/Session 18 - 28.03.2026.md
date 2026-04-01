@@ -214,6 +214,8 @@ Katastion, pomszczenie Rufusa i odzyskanie insygni z łap Łowczycy.
 
 
 
+
+
 ### Część 3B: Ku wrzosowisku
 
 muzyka: 
