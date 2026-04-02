@@ -24,4 +24,4 @@ Dekrety to rytuały, które trwale czerpią z siły turygnasu do momentu wycofan
 [[Dekret Nocobójstwa]] - dekret, który gromadzi nad turygną masę ogniową w postaci kuli, służąc za drugie słońce. Może zostać przemieszczone w zasięgu paruset metrów od turygnasu.
 [[Dekret Pożogi]] - dekret, który generuje w wybranym miejscu strefę pożogi, na której dochodzi do spontanicznych zapłonów i manifestacji ogników w powietrzu. Rozmiar i temperatura strefy zależy od odległości od turygny.
 [[Dekret latarni ku niebu]] - dekret, który stanowi ciągłą formę Liturgii Flary, używany najczęściej sporadycznie.
-[[Dekret tlących się szeptów]] 
+[[Dekret tlących się szeptów]]  - dekret, który wiąże wybraną osobę z konkretną Turygną. Rytualista może poprzez tę Turygnę namierzyć naznaczoną osobę bądź przekazać jej trzy zdania
