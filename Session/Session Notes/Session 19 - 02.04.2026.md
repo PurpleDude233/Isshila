@@ -10,13 +10,17 @@
 
 ### Część 1: Obiadek u Strahda
 
-Temir: sierota z Harr, gdyby nie błogosławieństwo aetheriosa byłby dalej kaleką bez grosza przy duszy na prowincjonalnej wyspie Harr. Parę lat potem dowiódł swoich talentów na tyle, by zostać wciągniętym przez Ojca Rufusa w szeregi braci Trygnizan, i po dwóch latach posługi wyruszył tu w ramach Eteryckiej Kompanii Misyjnej. Znał Eleonora (zmarłego) z widzenia, nie rozmawiali dużo, widział, że Eleonor bardzo się męczył na Isshili i pragnął wrócić do domu.
+Temir: sierota z Harr, gdyby nie błogosławieństwo aetheriosa byłby dalej kaleką bez grosza przy duszy na prowincjonalnej wyspie Harr. Parę lat potem dowiódł swoich talentów na tyle, by zostać wciągniętym przez Ojca Rufusa w szeregi braci Trygnizan, i po dwóch latach posługi wyruszył tu w ramach Eteryckiej Kompanii Misyjnej. Znał Eleonora (zmarłego) z widzenia, nie rozmawiali dużo, widział, że Eleonor bardzo się męczył na Isshili i pragnął wrócić do domu. Nie przepadał za Askim, który bardzo uczepił się Katastiona, którego z kolei bardzo szanuje.
 
-Caldar: elf z wyspy Sargantui (Sargantua), wraz z bratem był głęboko oddany wierze w aetheriosa, ale ze względu na swoją naturę ()
+Caldar: elf z wyspy Sargantui (Sargantua), wraz z bratem Delioranem był głęboko oddany wierze w aetheriosa. Jego brat jak na elfa był wyjątkowo potent, prawie spełniając standardy oczekiwane od przyszłych rytualistów. Caldar natomiast miał bardzo niski potencjał. Żeby nie zostawiać brata samego Delioran wraz z nim dołączył do trygnizan, którzy rekrutowali zarówno ludzi i elfy. Caldar wiedział, że Delioran zrobił to dla niego. Caldar ma żal do ojca Rufusa i do siebie za śmierć brata.
+
+Katastion obwieszcza w połowie poczęstunku co spotkało Ojca Rufusa z przesadnym wręcz żalem, którego nie wykazywał wczesniej w namiocie. Informuje też, żeby bracia nie tracili wiary, bowiem przyniosą odwet bestii. Katastion (ja) tym sposobem sprowokuje Blaithin do podjęcia się prób negocjacji z Łowczycą. 
 
 ### Część 2: Obieranie celu (jak ziemniaka)
 
 patrzenia na głowe kontent
+
+Jeśli wybiorą Łowczycę to znajdą jej starą bazę wypadową jak jeszcze była człowiekiem.
 
 ### Część 3A: Ku wrzosowisku
 
@@ -46,3 +50,7 @@ Różowe osuwisko
 mokradła pełne świetlików nawet za dnia.
 
 ### Część 3B: Ku Łowczycy
+
+Na pierwszy rzut oka Nawigacja się jebła. Stoicie w głębokiej, zielonej puszczy, poza pojedynczymi sarnami i paroma dzięciołami nikogo tu nie było od lat. A jednak, przed wami prezentuje się okazały pień porażonego przed laty drzewa, który pod warstwą mchów i porostów zdaje się mieć pojedyncze zdobienia (najlepiej żeby poznała je Rhazani, bo to te same barwniki których używała jej matka jako łowczyni). 
+
+Wewnątrz pnia czeka kolekcja 
