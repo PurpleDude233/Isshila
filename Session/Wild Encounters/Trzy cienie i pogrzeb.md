@@ -1,0 +1,1 @@
+[[Doireann]], Tropicielka Mądrości będzie wymykać się [[Lyra Vardane|Lyrze]] dwukrotnie, a za trzecim razem zdradzi jej, że nie zamierza dzielić się z m
