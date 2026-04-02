@@ -10,6 +10,9 @@
 
 ### Część 1: Obiadek u Strahda
 
+Temir: sierota z Harr, gdyby nie błogosławieństwo aetheriosa byłby dalej kaleką bez grosza przy duszy na prowincjonalnej wyspie Harr. Parę lat potem dowiódł swoich talentów na tyle, by zostać wciągniętym przez Ojca Rufusa w szeregi braci Trygnizan, i po dwóch latach posługi wyruszył tu w ramach Eteryckiej Kompanii Misyjnej. Znał Eleonora (zmarłego) z widzenia, nie rozmawiali dużo, widział, że Eleonor bardzo się męczył na Isshili i pragnął wrócić do domu.
+
+Caldar: elf z wyspy Sargantui (Sargantua), wraz z bratem był głęboko oddany wierze w aetheriosa, ale ze względu na swoją naturę ()
 
 ### Część 2: Obieranie celu (jak ziemniaka)
 
