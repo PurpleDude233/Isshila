@@ -1,0 +1,4 @@
+Historia:
+W nadmorskiej dziczy przed laty działał klan łowców. Ich tereny łowieckie zostały zainfekowane przez jemiołę. Ponieważ to teren bez nadzoru druidzkiego nikt nie zdążył zareagować i niedługo dawna kryjówka stała się jemiołową szkółką, a jej mieszkańcy jemiołakami. Szkółkę potraktowano ogniem, ostatnim paru łowcom zaproponowano rehabilitację pod okiem poprzednika druida wrzosowisk, część wolała umrzeć, część się zgodziła i wcieliła się w życie wsi.
+
+Łowczyca była dziewczynką żyjącą na wrzosowisku, która czuła, że tu nie pasuje. Słysząc o tym co przybysze z dziczy robili poczuła, że może to jest jej pisane. Po latach życia łowczyni odkryła, że nawet to nie jest to, czego chce.
