@@ -1,5 +1,5 @@
 ### Cast:
-[[Łowczyni]]
+[[Łowczyca]]
 
 ---
 

@@ -1,7 +1,7 @@
 ### Cast:
 [[Nawigacja]]
 [[Konserwacja]]
-[[Łowczyni]]
+[[Łowczyca]]
 
 ---
 
