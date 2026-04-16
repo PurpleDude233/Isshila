@@ -1,0 +1,1 @@
+Zamrożony projekt Druida Hitlera. Z pomocą gromadzących informacje istot takich jak Blaithin krąg Hitlera miał skomponować Pieśń,
