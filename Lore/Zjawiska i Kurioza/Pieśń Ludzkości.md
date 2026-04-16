@@ -1,1 +1,1 @@
-Zamrożony projekt Druida Hitlera. Z pomocą gromadzących informacje istot takich jak Blaithin krąg Hitlera miał skomponować Pieśń,
+Zamrożony projekt Druida Hitlera. Z pomocą gromadzących informacje istot takich jak Blaithin krąg Hitlera miał skonstruować rytuał, tzw. Pieśń Ludzkości, która złączyłaby Isshilańczyków z Chórem Wszechrzeczy.
