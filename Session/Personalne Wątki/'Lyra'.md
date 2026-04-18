@@ -12,3 +12,4 @@ W pewnym momencie prawdziwa Lyra przerażona tym co widzi zdecydowała że trzeb
 pani Kapitan straciła pamięć i pojawiła się znów w normalnym świecie
 Jedyny który przeżył - x, wciąż lojalny dla pani Kapitan od tamtego czasu szuka jej po całym świecie, znajdzie ją w którymś segmencie kampanii
 
+Kapitan otrzymała intrygującą ofertę od Instytutu na pomoc w eksploracji innego świata połączonego z Acron. Miała przewodzić grupie ludzi w psionicznej eksploracji ale szybko się okazało, że nie wszyscy radzą sobie równie dobrze. Zaproponowała skorzystanie z własnej załogi jako explorerów. Explorerzy nie wiedzieli, że nie wrócą stamtąd tak jak Kapitan. Przez lata zbierała załogę i mamiła co bardziej obiecujących ludzi do pomocy w eksploracji, specjalnie też szukała nowych członków już nie tylko zaradnych i sprawnych fizycznie, ale też o większej wrażliwości psionicznej. Jedną z takich była Lyra Vardane. 
