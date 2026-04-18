@@ -11,3 +11,4 @@ Jako jedna z pierwszych pani Kapitan wraz ze swoimi zaufanymi wyruszyli aby wyba
 W pewnym momencie prawdziwa Lyra przerażona tym co widzi zdecydowała że trzeba powstrzymać panią Kapitan, udało jej się kosztem jej życia i większości ekipy
 pani Kapitan straciła pamięć i pojawiła się znów w normalnym świecie
 Jedyny który przeżył - x, wciąż lojalny dla pani Kapitan od tamtego czasu szuka jej po całym świecie, znajdzie ją w którymś segmencie kampanii
+
