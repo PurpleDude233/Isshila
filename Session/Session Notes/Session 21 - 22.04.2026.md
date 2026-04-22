@@ -29,6 +29,11 @@ wytarta podłoga, podłużna łódka wisząca na ścianie, porozwieszane zioła 
 
 dziewczynka wskakuje do łódki i przechylając głowę przypatruje im się figlarnie
 
+strasznie dużo gości mamy ostatnio
+przyszła taka jedna sympatyczna
+Wieszczka nie zrobiła nawet pełnego obrotu
+no i teraz wy nie wiem w sumie nawet jak się wszyscy tu pomieścimy
+
 ### Część 3: Pani Kapitan
 muzyka: Lyra Vajkay
 blahin przyszła tutaj poznać sobie jakieś słowa czy imiona krzaków i jeśli tego potrzebuje to to jest jakby okej 
