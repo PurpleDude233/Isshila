@@ -28,7 +28,11 @@ trochę rozmowy z druidem
 ### Część 2: Duży Dom Shenanigans
 
 pełno zapachów, narzędzi, futer, jedzenia, instrumentów
-wytarta podłoga, podłóżna łódka wisząca na ścianie
+wytarta podłoga, podłużna łódka wisząca na ścianie, porozwieszane zioła na różnych etapach suszenia
+
+dziewczynka wskakuje do łódki i przechylając głowę przypatruje im się figlarnie
+
+
 
 
 ### Część 2A: Ku wrzosowisku
