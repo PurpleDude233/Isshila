@@ -70,7 +70,21 @@ Kolczaste skałki
 Różowe osuwisko
 mokradła pełne świetlików nawet za dnia.
 
-### Część 2B: Ku Łowczycy
+### Część 8A: Ku Łowczycy
+
+Na pierwszy rzut oka Nawigacja się jebła. Stoicie w głębokiej, zielonej puszczy, poza pojedynczymi sarnami i paroma dzięciołami nikogo tu nie było od lat. A jednak, przed wami prezentuje się okazały pień porażonego przed laty drzewa, który pod warstwą mchów i porostów zdaje się mieć pojedyncze zdobienia (najlepiej żeby poznała je Rhazani, bo to te same barwniki których używała jej matka jako łowczyni). 
+
+Wewnątrz pnia czeka kolekcja 
+
+
+### Część 8B: Ku Dun Thuaidh
+
+Na pierwszy rzut oka Nawigacja się jebła. Stoicie w głębokiej, zielonej puszczy, poza pojedynczymi sarnami i paroma dzięciołami nikogo tu nie było od lat. A jednak, przed wami prezentuje się okazały pień porażonego przed laty drzewa, który pod warstwą mchów i porostów zdaje się mieć pojedyncze zdobienia (najlepiej żeby poznała je Rhazani, bo to te same barwniki których używała jej matka jako łowczyni). 
+
+Wewnątrz pnia czeka kolekcja 
+
+
+### Część 8C: Lidryńska Rzeźba
 
 Na pierwszy rzut oka Nawigacja się jebła. Stoicie w głębokiej, zielonej puszczy, poza pojedynczymi sarnami i paroma dzięciołami nikogo tu nie było od lat. A jednak, przed wami prezentuje się okazały pień porażonego przed laty drzewa, który pod warstwą mchów i porostów zdaje się mieć pojedyncze zdobienia (najlepiej żeby poznała je Rhazani, bo to te same barwniki których używała jej matka jako łowczyni). 
 
