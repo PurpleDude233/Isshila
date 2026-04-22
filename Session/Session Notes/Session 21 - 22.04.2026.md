@@ -42,20 +42,24 @@ ale twoje miejsce jest tutaj, to po to bije twoje serce, po to twarz jakby z wł
 dopiero teraz uświadamiasz sobie jak wiele byłabyś wstanie oddać właśnie za to, wiatr delikatnie poruszający włosami, bryzę osiadającą na wargach
 nagły ból na prawej łopatce wyrywa cię z rozmyślań
 ### Część 4: A time of rest
-druid przychodzi i rozmawiają do wieczora
-odpoczynek, chwila na opisanie własnych projektów po czym nadchodzi wieczór 
-
-### Część 5: An overwhelming presence
-
-muzyka: 
-Igna - No Turning Back Plague Tale
+druid przychodzi i proponuje Blaithin by udała się z nim do 'eremiku', czyli niewielkiej górce ze starą wierzbą, w której mieszka.  
 
 
-### Część 6: Blahin w Sanatorium
+
+### Część 5: Blahin w Sanatorium
 
 bubi szenanigans
 
-Lekcja wichrów: 
+Lekcja wichrów: Masz naturalną przewagę, drzewa płynnie mówią w językach wiatrów, szeleszcząc dźwięcznie w ich rytm, usiądź, nabierz powietrza i kiedy zrobi już pełen obrót wokół twego serca pozwól mu lecieć dalej. Ciała z reguły są twarde, lubią brać, budować, ty musisz nauczyć się pozwalać odejść. Wichru nie można zatrzymać, można tylko być częścią jego wędrówki przez najciemniejsze zakamarki świata. Nie da się go posiąść, ale można się z nim zaprzyjaźnić, nikt szybciej niż on nie poniesie wieści. Zrób co czujesz.
+
+Blaithin, czujesz jak obcy, nieznany ci wiatr oplata twoje gałęzie, popycha w jedną, w drugą stronę, jakby chcąc sprawdzić czy dotrzymasz mu kroku w tańcu. (...) Raz jeszcze zaostrzy się, wirując nad wrzosowiskiem, wznosząc tumany pyłu i krople morskiej wody nad połacie zieleni i fioletu. Dostrzegasz pojedyncze palce, stopy wichrów tańczących na niewidzialnej scenie, drwiących z ciebie. (...) Wiatr natychmiastowo ucichł, niesione przezeń krople i pył rozleciały się 
+
+### Część 6: An overwhelming presence/ time for rest
+
+Wkracza siostra Igna, idą spać.
+muzyka: 
+Igna - No Turning Back Plague Tale
+
 
 
 ### Część 7: Lekcje na Wrzosowisku, Downtime/Timeskip
