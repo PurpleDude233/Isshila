@@ -59,7 +59,7 @@ No, wiedziałem, że z tym pójdzie szybko, starczy na dziś, padam z kopyt.
 
 Wkracza siostra Igna, idą spać.
 muzyka: 
-Igna wejście - 
+Igna wejście - Igna Introduction 
 Igna lekcja ognia - No Turning Back Plague Tale
 
 
