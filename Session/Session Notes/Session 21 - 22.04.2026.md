@@ -52,6 +52,8 @@ Igna - No Turning Back Plague Tale
 
 
 ### Część 6: Blahin w Sanatorium
+Time skip i czas na opisanie ich projektów
+
 bubi szenanigans
 
 
