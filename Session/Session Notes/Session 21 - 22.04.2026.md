@@ -18,6 +18,7 @@ pojawi się [[Tadhg]] i zaczyna się rozmowa
 
 huk stuk jebnięcie
 spadają furkocząc fragmenty ich skrzydeł
+wyłączamy the heath i ptaszory
 odleci w stronę gór
 
 trochę rozmowy z druidem
@@ -34,7 +35,7 @@ blahin przyszła tutaj poznać sobie jakieś słowa czy imiona krzaków i jeśli
 gdy tylko czujesz tą sól w powietrzu, słyszysz te uderzenia fal o brzeg, oczywistym się staje, że może i przyszłaś tu towarzyszyć blahin
 ale twoje miejsce jest tutaj, to po to bije twoje serce, po to twarz jakby z własnej wystawia się aby złapać promienie słońca 
 dopiero teraz uświadamiasz sobie jak wiele byłabyś wstanie oddać właśnie za to, wiatr delikatnie poruszający włosami, bryzę osiadającą na wargach
-
+nagły ból na prawej łopatce wyrywa cię z rozmyślań
 ### Część 4: A time of rest
 odpoczynek, chwila na opisanie własnych projektów po czym nadchodzi wieczór 
 ### Część 5: An overwhelming presence
