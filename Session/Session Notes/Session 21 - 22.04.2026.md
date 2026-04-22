@@ -81,7 +81,7 @@ Mapy są różne i opisują zupełnie inne krajobrazy, są na dobrą sprawę bez
 
 Landmarks:
 Owalny głaz
-Żółte drzewo
+Żółty dąb-> 
 Ściana wysokiej trawy
 Strumień biegnący po pniu pobliskiej wierzby
 Czarne bajoro

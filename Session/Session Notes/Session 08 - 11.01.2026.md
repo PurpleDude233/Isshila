@@ -1,5 +1,7 @@
 (cztery razy w lewo jak zobaczycie żółty dąb, połóż się i poturlaj pod uschłą paprocią, z zamkniętymi oczami wejdź tyłem do groty, siedem razy przejść obok spruchniałego dębu, muszą się zanurzyć w odbiciu księżyca, wysłuchać dwukrotnie wycia wilka, z zamkniętymi oczami przejść przez ponurą jaskinię). 
 
+Żółty Dąb
+
 Po wykonaniu rad w pewnym momencie wpadają w jakieś krzaki i znikają. Pojawiają się w krzakach, na pozór nic się nie stało, ale słyszą ponownie kroki i szum rozmów, jeśli pójdą za głosem to dotrą na Ryneczek. Błądząc pośród kilkudziesięciu namiotów prędzej czy później zwrócą czyjąś uwagę, np. 4 (stróża) albo któregoś z kupców. Na środku czeka Awangardowy, odprawiający jakiś skromny rytuał (np wylanie piwa/mleka) przed podobizną Mamórgadh. Tu może ich raz jeszcze powitać na „Polanie, która nigdy nie śpi” czy coś takiego i powiedzieć, że jeśli chcą się na coś przydać to niech podbiją do 3 (shady psica) lub 4 (stróża) z informacją, że są od niego i że na pewno będą mieli coś do roboty. Jeśli będą się stawiać to się nachyli i powie Noir głosem, że tu wymienia się wszystkim, ale najważniejszą walutą jest uprzejmość, że jeśli chcą się czegoś dowiedzieć, to niech mają w zanadrzu parę przysług.
 
 Dotarcie do ryneczka
