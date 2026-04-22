@@ -42,14 +42,17 @@ ale twoje miejsce jest tutaj, to po to bije twoje serce, po to twarz jakby z wł
 dopiero teraz uświadamiasz sobie jak wiele byłabyś wstanie oddać właśnie za to, wiatr delikatnie poruszający włosami, bryzę osiadającą na wargach
 nagły ból na prawej łopatce wyrywa cię z rozmyślań
 ### Część 4: A time of rest
+druid przychodzi i rozmawiają do wieczora
 odpoczynek, chwila na opisanie własnych projektów po czym nadchodzi wieczór 
-### Część 5: An overwhelming presence
+### Część 5: Blahin w Sanatorium
+bubi szenanigans
+### Część 6: An overwhelming presence
 
 muzyka: 
 Igna - No Turning Back Plague Tale
 
 
-### Część 6: Sprawy Igny i Wrzosowiska
+### Część 7: Sprawy Igny i Wrzosowiska
 
 Następnego dnia rano mają okazje zobaczyć wiszące w powietrzy tysiące kropel, które powoli są zbierane przez druida i sprowadzane do morza, jak zapytają to opowie o tym, że to jego obowiązek i co by się stało gdyby tego nie robił (ważne, bo to się stanie potem w Dun Thuaidh)
 
