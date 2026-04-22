@@ -45,7 +45,6 @@ nagły ból na prawej łopatce wyrywa cię z rozmyślań
 druid przychodzi i proponuje Blaithin by udała się z nim do 'eremiku', czyli niewielkiej górce ze starą wierzbą, w której mieszka.  
 
 
-
 ### Część 5: Blahin w Sanatorium
 
 bubi szenanigans
@@ -59,7 +58,7 @@ No, wiedziałem, że z tym pójdzie szybko, starczy na dziś, padam z kopyt.
 
 Wkracza siostra Igna, idą spać.
 muzyka: 
-Igna wejście - 
+Igna wejście - Igna Introduction 
 Igna lekcja ognia - No Turning Back Plague Tale
 
 
