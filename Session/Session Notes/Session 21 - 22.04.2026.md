@@ -29,7 +29,6 @@ wytarta podłoga, podłużna łódka wisząca na ścianie, porozwieszane zioła 
 dziewczynka wskakuje do łódki i przechylając głowę przypatruje im się figlarnie
 
 ### Część 3: Pani Kapitan
-
 muzyka: Lyra Vajkay
 blahin przyszła tutaj poznać sobie jakieś słowa czy imiona krzaków i jeśli tego potrzebuje to to jest jakby okej 
 gdy tylko czujesz tą sól w powietrzu, słyszysz te uderzenia fal o brzeg, oczywistym się staje, że może i przyszłaś tu towarzyszyć blahin
