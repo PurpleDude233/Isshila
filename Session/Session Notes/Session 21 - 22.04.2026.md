@@ -81,7 +81,7 @@ Mapy są różne i opisują zupełnie inne krajobrazy, są na dobrą sprawę bez
 
 Landmarks:
 Owalny głaz
-Żółty Dąb -> Uschła paproć ->Grota -> Spruchniały Dąb -> Jaskinia
+Żółty Dąb -> Uschła paproć -> Grota -> Spruchniały Dąb -> Jaskinia ze słuchaniem wilków
 Ściana wysokiej trawy
 Strumień biegnący po pniu pobliskiej wierzby
 Czarne bajoro z bomblami błota, żaby
