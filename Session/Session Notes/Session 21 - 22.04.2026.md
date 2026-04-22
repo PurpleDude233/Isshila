@@ -1,17 +1,35 @@
 ### Cast:
-[[Caldar]]
 [[Nawigacja]]
 [[Konserwacja]]
+[[Igna]]
 [[Tadhg]]
 
 ---
+### Część 0: Scena bohaterów niezależnych
 
 
-### Część 1: Obieranie celu (jak ziemniaka)
 
-patrzenia na głowe kontent
+### Część 1: Rhazani Ptaki
+rhazani zbliża się do brzegu
+wypatruje ptaszorów
+przyglądając się zaczyna zauważać wyraźne hierarchie
+sposób polowania
+mniejsze zbierają ochłapy
 
-Jeśli wybiorą Łowczycę to znajdą jej starą bazę wypadową jak jeszcze była człowiekiem.
+
+pojawi się [[Tadhg]] i zaczyna się rozmowa
+
+
+huk stuk jebnięcie
+spadają furkocząc fragmenty ich skrzydeł
+odleci w stronę gór
+
+trochę rozmowy z druidem
+### Część 2: Duży Dom Shenanigans
+
+pełno zapachów, narzędzi, futer, jedzenia, instrumentów
+wytarta podłoga, podłóżna łódka wisząca na ścianie
+
 
 ### Część 2A: Ku wrzosowisku
 
