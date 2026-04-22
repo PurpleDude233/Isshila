@@ -52,14 +52,21 @@ Igna - No Turning Back Plague Tale
 
 
 ### Część 6: Blahin w Sanatorium
-Time skip i czas na opisanie ich projektów
 
 bubi szenanigans
 
+Lekcja wichrów: 
 
-### Część 7: Sprawy Igny i Wrzosowiska
+
+### Część 7: Lekcje na Wrzosowisku, Downtime/Timeskip
 
 Następnego dnia rano mają okazje zobaczyć wiszące w powietrzy tysiące kropel, które powoli są zbierane przez druida i sprowadzane do morza, jak zapytają to opowie o tym, że to jego obowiązek i co by się stało gdyby tego nie robił (ważne, bo to się stanie potem w Dun Thuaidh)
+
+Lekcja wody: [[Tadhg]] pracuje na plaży w zbieraniu kropel i zwracaniu ich morzu.
+
+Lekcja traw i wrzosów: [[Linra]] zaprasza na sesję tarzania się w trawach.
+
+Lekcja ognia: [[Igna]] oferuje nieco nauczania i anegdotek o ogniu.
 
 Igna dostarcza plik z dwoma mapami i prosi by wyruszyli i powiedzieli co tam znajdą.
 
