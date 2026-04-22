@@ -44,12 +44,15 @@ nagły ból na prawej łopatce wyrywa cię z rozmyślań
 ### Część 4: A time of rest
 druid przychodzi i rozmawiają do wieczora
 odpoczynek, chwila na opisanie własnych projektów po czym nadchodzi wieczór 
-### Część 5: Blahin w Sanatorium
-bubi szenanigans
-### Część 6: An overwhelming presence
+
+### Część 5: An overwhelming presence
 
 muzyka: 
 Igna - No Turning Back Plague Tale
+
+
+### Część 6: Blahin w Sanatorium
+bubi szenanigans
 
 
 ### Część 7: Sprawy Igny i Wrzosowiska
