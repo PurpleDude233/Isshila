@@ -81,10 +81,10 @@ Mapy są różne i opisują zupełnie inne krajobrazy, są na dobrą sprawę bez
 
 Landmarks:
 Owalny głaz
-Żółty dąb-> 
+Żółty Dąb -> Uschła paproć ->Grota -> Spruchniały Dąb -> Jaskinia
 Ściana wysokiej trawy
 Strumień biegnący po pniu pobliskiej wierzby
-Czarne bajoro
+Czarne bajoro z bomblami błota, żaby
 Kolczaste skałki
 Różowe osuwisko
 mokradła pełne świetlików nawet za dnia.
