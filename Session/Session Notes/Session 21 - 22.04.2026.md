@@ -2,12 +2,10 @@
 [[Nawigacja]]
 [[Konserwacja]]
 [[Igna]]
+[[Linra]]
 [[Tadhg]]
 
 ---
-### Część 0: Scena bohaterów niezależnych
-
-
 
 ### Część 1: Rhazani Ptaki
 rhazani zbliża się do brzegu
@@ -16,9 +14,7 @@ przyglądając się zaczyna zauważać wyraźne hierarchie
 sposób polowania
 mniejsze zbierają ochłapy
 
-
 pojawi się [[Tadhg]] i zaczyna się rozmowa
-
 
 huk stuk jebnięcie
 spadają furkocząc fragmenty ich skrzydeł
@@ -32,9 +28,6 @@ wytarta podłoga, podłużna łódka wisząca na ścianie, porozwieszane zioła 
 
 dziewczynka wskakuje do łódki i przechylając głowę przypatruje im się figlarnie
 
-
-
-
 ### Część 3: Pani Kapitan
 
 muzyka: Lyra Vajkay
@@ -42,16 +35,16 @@ blahin przyszła tutaj poznać sobie jakieś słowa czy imiona krzaków i jeśli
 gdy tylko czujesz tą sól w powietrzu, słyszysz te uderzenia fal o brzeg, oczywistym się staje, że może i przyszłaś tu towarzyszyć blahin
 ale twoje miejsce jest tutaj, to po to bije twoje serce, po to twarz jakby z własnej wystawia się aby złapać promienie słońca 
 dopiero teraz uświadamiasz sobie jak wiele byłabyś wstanie oddać właśnie za to, wiatr delikatnie poruszający włosami, bryzę osiadającą na wargach
-### Część 2A: Ku wrzosowisku
+
+### Część 4: A time of rest
+odpoczynek, chwila na opisanie własnych projektów po czym nadchodzi wieczór 
+### Część 5: An overwhelming presence
 
 muzyka: 
 Igna - No Turning Back Plague Tale
 
-Generalnie overall pacing i story wypadnie lepiej jeśli tu pójdą najpierw, ale dajmy im wybór.
 
-Docierają w okolice wrzosowiska kiedy słyszą wołanie z zewnątrz, nawigacja informuje o anomalii drogowej, którą okazuje się być Siostra Igna. Ta proponuje im by wspólnie udać się do wsi na nadmorskim wrzosowisku, gdzie stacjonuje. We wsi spotykają druida wrzosowisk, który opowiada im co nieco o miejscu. Igna proponuje czy nie chcą spróbować jej pomóc następnego ranka z odnalezieniem drogi do lidryńskiego artefaktu. 
-
-### Część 3A: Sprawy Igny i Wrzosowiska
+### Część 6: Sprawy Igny i Wrzosowiska
 
 Następnego dnia rano mają okazje zobaczyć wiszące w powietrzy tysiące kropel, które powoli są zbierane przez druida i sprowadzane do morza, jak zapytają to opowie o tym, że to jego obowiązek i co by się stało gdyby tego nie robił (ważne, bo to się stanie potem w Dun Thuaidh)
 
