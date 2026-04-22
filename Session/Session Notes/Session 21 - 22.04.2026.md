@@ -35,6 +35,13 @@ dziewczynka wskakuje do łódki i przechylając głowę przypatruje im się figl
 
 
 
+### Część 3: Pani Kapitan
+
+muzyka: Lyra Vajkay
+blahin przyszła tutaj poznać sobie jakieś słowa czy imiona krzaków i jeśli tego potrzebuje to to jest jakby okej 
+gdy tylko czujesz tą sól w powietrzu, słyszysz te uderzenia fal o brzeg, oczywistym się staje, że może i przyszłaś tu towarzyszyć blahin
+ale twoje miejsce jest tutaj, to po to bije twoje serce, po to twarz jakby z własnej wystawia się aby złapać promienie słońca 
+dopiero teraz uświadamiasz sobie jak wiele byłabyś wstanie oddać właśnie za to, wiatr delikatnie poruszający włosami, bryzę osiadającą na wargach
 ### Część 2A: Ku wrzosowisku
 
 muzyka: 
