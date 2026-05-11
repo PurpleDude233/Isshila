@@ -26,8 +26,15 @@ Ale ja tu tylko o sobie i podróżach, a przecież nie tylko ja zapewne ciekawy 
 **zauważa graczy**
 
 Insert powitanie,
-No cóż za wspaniała niespodzianka, cały dzień czułam że coś wielkiego nadciąga, a tu wychodzi na to że nadciągnęłam ja. Nie zauważyłam was wcale iskierki wy moje. A jakie to kolorowe, a jakie różnorodne! Widział Pan Panie Tajg że las Pana odwiedził? I jeszcze krajanie! Myślałam, że nic mi już tego dnia nie poprawi a tu proszę! Nie dość że goście to jeszcze jacy znamienici. Już wam parzę herbatkę, jakiś zapas herbatnikw też powinien się znaleźć, musicie mi koniecznie wszystko opowiedzieć zaraz.
+No cóż za wspaniała niespodzianka, cały dzień czułam że coś wielkiego nadciąga, a tu wychodzi na to że nadciągnęłam ja. Nie zauważyłam was wcale iskierki wy moje. A jakie to kolorowe, a jakie różnorodne! Widział Pan Panie Tajg że las Pana odwiedził? I jeszcze krajanie! Myślałam, że nic mi już tego dnia nie poprawi a tu proszę! Nie dość że goście to jeszcze jacy znamienici. Już wam parzę herbatkę, jakiś zapas herbatników też powinien się znaleźć, musicie mi koniecznie wszystko opowiedzieć zaraz.
 
+
+
+Igna important things
+KArtografka, nieskutecznie stara sie zbadać tą wyspę wysłana tutaj przez ???
+Rozpoczęła swoją karierę w klasztorze skrybim gdzie znalazła swoje powołąnia
+Pracowała w przykościelnej szkółce ucząc swojego fachu małe istotki
+Dość szy
 
 ### Część 2: Lekcje na Wrzosowisku, Downtime/Timeskip
 
