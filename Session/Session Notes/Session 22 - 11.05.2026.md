@@ -34,7 +34,8 @@ Igna important things
 KArtografka, nieskutecznie stara sie zbadać tą wyspę wysłana tutaj przez ???
 Rozpoczęła swoją karierę w klasztorze skrybim gdzie znalazła swoje powołąnia
 Pracowała w przykościelnej szkółce ucząc swojego fachu małe istotki
-Dość szy
+Dość szybko zdecydowała jednak że nie przepisywanie map a tworzenie własnych jest jej pisane
+po paru wyprawach na których udowodniła swoją wartość została wysłana tutaj
 
 ### Część 2: Lekcje na Wrzosowisku, Downtime/Timeskip
 
