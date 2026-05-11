@@ -14,6 +14,11 @@ muzyka:
 Igna wejście - Igna Introduction 
 Igna lekcja ognia - No Turning Back Plague Tale
 
+ahhh, gdzie to ja dzisiaj nie byłam!
+Tyle co dzisiaj to moje biedne nogi nie musiały przeżyć chyba od ostatniej pielgrzymki do Divispectry!
+Oj tak, klapnę sobie i posiedzę za wszeczasy. tylko najpierw herbatka.
+Ale powiem Panu, Panie Tajg 
+
 
 ### Część 2: Lekcje na Wrzosowisku, Downtime/Timeskip
 
