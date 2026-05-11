@@ -31,10 +31,11 @@ No cóż za wspaniała niespodzianka, cały dzień czułam że coś wielkiego na
 
 
 Igna important things
-KArtografka, nieskutecznie stara sie zbadać tą wyspę wysłana tutaj przez ???
+KArtografka, nieskutecznie stara sie zbadać tą wyspę wysłana tutaj przez siostrę przełożoną starszą Niekopcynkę Kominę
 Rozpoczęła swoją karierę w klasztorze skrybim gdzie znalazła swoje powołąnia
 Pracowała w przykościelnej szkółce ucząc swojego fachu małe istotki
 Dość szybko zdecydowała jednak że nie przepisywanie map a tworzenie własnych jest jej pisane
+Swoim wersją mapy rubieży pokazała sporo błędów które były w starych wersjach
 po paru wyprawach na których udowodniła swoją wartość została wysłana tutaj
 
 ### Część 2: Lekcje na Wrzosowisku, Downtime/Timeskip
