@@ -17,11 +17,16 @@ Igna lekcja ognia - No Turning Back Plague Tale
 ahhh, gdzie to ja dzisiaj nie byłam!
 Ostatnim razem kiedy moje biedne nogi musiały się nacierpieć  tak jak dzisiaj to chyba na ostatniej pielgrzymce do Divispectry !
 Oj tak, klapnę sobie i posiedzę za wszeczasy. tylko najpierw herbatka. Bez dobrego wywaru odpoczywać nie dość że się nie powinno to jeszcze moim zdaniem się w ogóle nie da. 
-Głodna jestem jak z co najmniej cztery z tych waszych śmies
+Głodna jestem jak z co najmniej cztery z tych waszych śmiesznych niedźwiedzi
 Ale powiem Panu, Panie Tajg, że niesamowite tu macie te widoki, znowu dzisiaj widziałam tego małego jakmutam? 
 No nieważne, śliczne zwierzątko naprawdę wspaniałe, a jak pożerał te owocki to myślałem że nie wytrzymał taki piękny pyszczek miał. I chodziłam tak sobię licząc że chociaż dzisiaj się coś uda osoągnąć, ale jak na to jak piękna ta okolica, to zdradziecka niczym najgorsi z nieświętych. Tu śliczny kliff, jedno morze, drugie morze, piękny kwiatek, kochana bestia; a z mapy znowu nici, z trzy razy się zgubiłam a i tak dzięki niech będą Aetheriosowi jakoś się tu znalazłam. Mówię Panu, Panie Tajg niełatwe zadanie przypadło tej wojowniczce, oj niełatwe.
 
 Ale ja tu tylko o sobie i podróżach, a przecież nie tylko ja zapewne ciekawy dzień miałam. Jak tam z tymi ptaszorami w końcu wyszło? Widziałam że już sobie poszły a wioska dalej tak samo wysoka, to zakładam, że dobrze. Aha aha, no i jeszcze przecież te całe perełki nibyjeziorka i strumyki! Jakieś nowe wieści?
+
+**zauważa graczy**
+
+Insert powitanie,
+No cóż za wspaniała niespodzianka, cały dzień czułam że coś wielkiego nadciąga, a tu wychodzi na to że nadciągnęłam ja. Nie zauważyłam was wcale iskierki wy moje. A jakie to kolorowe, a jakie różnorodne! Widział Pan Panie Tajg że las Pana odwiedził? I jeszcze krajanie! Myślałam, że nic mi już tego dnia nie poprawi a tu proszę! Nie dość że goście to jeszcze jacy znamienici. Już wam parzę herbatkę, jakiś zapas herbatnikw też powinien się znaleźć, musicie mi koniecznie wszystko opowiedzieć zaraz.
 
 
 ### Część 2: Lekcje na Wrzosowisku, Downtime/Timeskip
