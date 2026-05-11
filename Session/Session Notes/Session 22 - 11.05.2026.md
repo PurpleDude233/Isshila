@@ -15,7 +15,7 @@ Igna wejście - Igna Introduction
 Igna lekcja ognia - No Turning Back Plague Tale
 
 ahhh, gdzie to ja dzisiaj nie byłam!
-Ostatnim razem kiedy moje biedne nogi musiały się nacierpieć  tak jak dzisiaj to chyba na ostatniej pielgrzymce do Divispectry !
+Ostatnim razem musiałam się tyle nachodzić na tych moich biednych nogach chyba na ostatniej pielgrzymce do Divispectry !
 Oj tak, klapnę sobie i posiedzę za wszeczasy. tylko najpierw herbatka. Bez dobrego wywaru odpoczywać nie dość że się nie powinno to jeszcze moim zdaniem się w ogóle nie da. 
 Głodna jestem jak z co najmniej cztery z tych waszych śmiesznych niedźwiedzi
 Ale powiem Panu, Panie Tajg, że niesamowite tu macie te widoki, znowu dzisiaj widziałam tego małego jakmutam? 
