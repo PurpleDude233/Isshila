@@ -15,9 +15,10 @@ Igna wejście - Igna Introduction
 Igna lekcja ognia - No Turning Back Plague Tale
 
 ahhh, gdzie to ja dzisiaj nie byłam!
-Tyle co dzisiaj to moje biedne nogi nie musiały przeżyć chyba od ostatniej pielgrzymki do Divispectry!
+Ostatnim razem kiedy moje biedne nogi musiały się nacierpieć  tak jak dzisiaj to chyba na ostatniej pielgrzymce do Divispectry !
 Oj tak, klapnę sobie i posiedzę za wszeczasy. tylko najpierw herbatka.
-Ale powiem Panu, Panie Tajg 
+Ale powiem Panu, Panie Tajg, że niesamowite tu macie te widoki, znowu dzisiaj widziałam tego małego jakmutam? 
+No nieważne, śliczne zwierzątko naprawdę wspaniałe, a jak pożerał te owocki to myślałem że nie wytrzymał taki piękny pyszczek miał. I chodziłam tak sobię licząc że chociaż dzisiaj się coś uda osoągnąć, ale jak na to jak piękna ta okolica, to zdradziecka niczym najgorsi z nieświętych. Tu śliczny kliff, jedno morze, drugie morze, piękny kwiatek, kochana bestia; a z mapy znowu nici, z trzy razy się zgubiłam a i tak dzięki niech będą Aetheriosowi jakoś się tu znalazłam. Mówię Panu, Panie Tajg niełatwe zadanie przypadło tej wojowniczce, oj niełatwe.
 
 
 ### Część 2: Lekcje na Wrzosowisku, Downtime/Timeskip
