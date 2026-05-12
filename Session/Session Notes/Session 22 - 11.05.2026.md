@@ -54,17 +54,25 @@ Igna dostarcza plik z dwoma mapami i prosi by wyruszyli i powiedzieli co tam zna
 
 Mapy są różne i opisują zupełnie inne krajobrazy, są na dobrą sprawę bezużyteczne. Zadaniem graczy będzie samodzielnie obrać trasę w oparciu o to jak oni uważają, że należy się dostać do ruin. Na miejscu czeka Igna z informacją, że te mapy pisała spacerując z różnymi osobami bądź samemu i że tego się obawiała, że jej mapy się nie sprawdzą tutaj. 
 
-Landmarks:
-miniaturowy jelonek skacze po kamieniach aby zjeść gruszkę - Skoczna Zwierzyna
-mały pierdolec który przestraszył się dzika - Drapierznik mały
-kupki z głazów - Stone Towers
+Landmarks
+
+OWALNY SKALNIAK miniaturowy jelonek skacze po kamieniach aby zjeść gruszkę - Skoczna Zwierzyna
+
+ŻÓŁTY DĄB mały pierdolec który przestraszył się dzika - Drapierznik mały 
 Żółty Dąb -> Uschła paproć ->Grota -> Spruchniały Dąb -> Jaskinia
-Ściana wysokiej trawy
-Strumienie biegnący po pniach pobliskich wierzb - Flowing Water
-Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet za dnia. - Bajoro
+
+OWALNY SKALNIAK kupki z głazów - Stone Towers, na krańcach skałki robią się ostre, kolczaste
+
+KORYTRAWY Ściana wysokiej trawy
+
+STROMY STRUMYK Strumienie biegnący po pniach pobliskich wierzb - Flowing Water
+
+CZARNE BAJORO Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet za dnia. - Bajoro
+
 mały pierdolec + mama - Drapierznik mały z mamą
-Kolczaste skałki
-Różowe osuwisko i zbieracz gliny - Skoczna Zwierzyna & Osuwisko
+
+
+OSUWISKO Różowe osuwisko i zbieracz gliny - Skoczna Zwierzyna & Osuwisko
 
 
 
