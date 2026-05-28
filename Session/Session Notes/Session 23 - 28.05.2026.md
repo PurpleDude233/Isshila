@@ -13,23 +13,22 @@ Gracze muszą odnaleźć drogą oraz przejść przez następujące
 
 Landmarks
 
-miniaturowy jelonek skacze po kamieniach aby zjeść gruszkę - Skoczna Zwierzyna
+Wichrogaj miniaturowy jelonek skacze po kamieniach aby zjeść gruszkę - Skoczna Zwierzyna
 
-ŻÓŁTY DĄB mały pierdolec który przestraszył się dzika - Drapierznik mały 
+KORYTRAWY Ściana wysokiej trawy mały pierdolec który przestraszył się dzika - Drapierznik mały 
+
 Żółty Dąb -> Uschła paproć ->Grota -> Spruchniały Dąb -> Jaskinia
 
-OWALNY SKALNIAK kupki z głazów - Stone Towers, na krańcach skałki robią się ostre, kolczaste
+OWALNY SKALNIAK kupki z głazów - Stone Towers, na krańcach skałki robią się ostre, kolczaste 
++ Leylineusz
 
-KORYTRAWY Ściana wysokiej trawy 
+
 STROMY STRUMYK Strumienie biegnący po pniach pobliskich wierzb - Flowing Water
+mały pierdolec + mama - Drapierznik mały z mamą
 
 CZARNE BAJORO Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet za dnia. - Bajoro
 
-mały pierdolec + mama - Drapierznik mały z mamą
-
-
 OSUWISKO Różowe osuwisko i zbieracz gliny - Skoczna Zwierzyna & Osuwisko
-
 
 ### Część 2: Lekcje na Wrzosowisku, Downtime/Timeskip
 
