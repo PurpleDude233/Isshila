@@ -13,7 +13,7 @@ Gracze muszą odnaleźć drogą oraz przejść przez następujące
 
 Landmarks
 
-OWALNY SKALNIAK miniaturowy jelonek skacze po kamieniach aby zjeść gruszkę - Skoczna Zwierzyna
+miniaturowy jelonek skacze po kamieniach aby zjeść gruszkę - Skoczna Zwierzyna
 
 ŻÓŁTY DĄB mały pierdolec który przestraszył się dzika - Drapierznik mały 
 Żółty Dąb -> Uschła paproć ->Grota -> Spruchniały Dąb -> Jaskinia
