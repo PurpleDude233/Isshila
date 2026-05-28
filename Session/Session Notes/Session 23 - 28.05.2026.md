@@ -20,7 +20,7 @@ KORYTRAWY Ściana wysokiej trawy mały pierdolec który przestraszył się dzika
 Żółty Dąb -> Uschła paproć ->Grota -> Spruchniały Dąb -> Jaskinia
 
 OWALNY SKALNIAK kupki z głazów - Stone Towers, na krańcach skałki robią się ostre, kolczaste 
-+ Leylineusz -- mężczyzna w zwiewnej, lnianej koszuli, niepoprawnie zapiętej i zwiewn. Włosy sine, a miejscami jak nocne niebo w mętnym jeziorze. Twarz gładka, spojrzenie opuszczone, puste, bez iskierek. Wysoki, ale nieco zgarbiony.
++ Leylineusz -- mężczyzna w zwiewnej, lnianej koszuli, niepoprawnie zapiętej i zwiewnym, aksamitnym robdeszanie. Włosy sine, a miejscami jak nocne niebo w mętnym jeziorze. Twarz gładka, spojrzenie opuszczone, puste, bez iskierek. Wysoki, ale nieco zgarbiony. Daje im questa by postawić ten kamyk (podaje kamyk) na szczycie tamtej (wskazuje na wiszącą w powietrzu wieżyczkę z kamyków). bardzo wymagające Dex saves któe mogą powtarzać, premia za współpracę. Położenie tam kamyka powstrzymuje koneic świata na pół wieku. Powie im to w taki sposób, żeby nie uwierzyli.
 
 
 STROMY STRUMYK Strumienie biegnący po pniach pobliskich wierzb - Flowing Water
