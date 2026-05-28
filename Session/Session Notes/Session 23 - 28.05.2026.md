@@ -20,8 +20,7 @@ miniaturowy jelonek skacze po kamieniach aby zjeść gruszkę - Skoczna Zwierzyn
 
 OWALNY SKALNIAK kupki z głazów - Stone Towers, na krańcach skałki robią się ostre, kolczaste
 
-KORYTRAWY Ściana wysokiej trawy
-
+KORYTRAWY Ściana wysokiej trawy 
 STROMY STRUMYK Strumienie biegnący po pniach pobliskich wierzb - Flowing Water
 
 CZARNE BAJORO Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet za dnia. - Bajoro
