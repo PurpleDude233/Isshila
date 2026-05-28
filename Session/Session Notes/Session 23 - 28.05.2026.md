@@ -20,7 +20,7 @@ KORYTRAWY Ściana wysokiej trawy mały pierdolec który przestraszył się dzika
 Żółty Dąb -> Uschła paproć ->Grota -> Spruchniały Dąb -> Jaskinia
 
 OWALNY SKALNIAK kupki z głazów - Stone Towers, na krańcach skałki robią się ostre, kolczaste 
-+ Leylineusz
++ Leylineusz -- mężczyzna w zwiewnej, lnianej koszuli, niepoprawnie zapiętej i zwiewn. Włosy sine, a miejscami jak nocne niebo w mętnym jeziorze. Twarz gładka, spojrzenie opuszczone, puste, bez iskierek. Wysoki, ale nieco zgarbiony.
 
 
 STROMY STRUMYK Strumienie biegnący po pniach pobliskich wierzb - Flowing Water
