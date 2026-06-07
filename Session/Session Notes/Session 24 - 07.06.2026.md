@@ -35,6 +35,11 @@ Gracze docierają przed leśny Lidryński Obelisk, gdzie czeka LLM (Ley-Line Mod
 
 W momencie pokonania LLM Parakleio zależnie od skali zniszczeń albo ten kończy zakłócanie transferu albo zostaje wybuchnięty. Z jego wnętrza wypada niewielki obiekt, jego jednostka pamięci, którą Konserwacja po otrzymaniu odpowiednich narzędzi może otworzyć, a potem przekazać Nawigacji do archiwum. Transfer kończy się sukcesem, wszyscy otrzymują poziom, czują się silniejsi.
 
+PŁACZĄCA BRZOZA
+
+Treść komunikatu dla blaithin:
+
+" Ład. Ambicja. Zreinkarnowana. Zdrada. Gwałt. Balans. Kres. "
 
 ### Część 3: Lekcje na Wrzosowisku, Downtime/Timeskip
 
