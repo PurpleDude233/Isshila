@@ -51,9 +51,7 @@ Mapy są różne i opisują zupełnie inne krajobrazy, są na dobrą sprawę bez
 
 ### Część 3A: Ku Łowczycy
 
-Na pierwszy rzut oka Nawigacja się jebła. Stoicie w głębokiej, zielonej puszczy, poza pojedynczymi sarnami i paroma dzięciołami nikogo tu nie było od lat. A jednak, przed wami prezentuje się okazały pień porażonego przed laty drzewa, który pod warstwą mchów i porostów zdaje się mieć pojedyncze zdobienia (najlepiej żeby poznała je Rhazani, bo to te same barwniki których używała jej matka jako łowczyni). 
 
-Wewnątrz pnia czeka kolekcja 
 
 
 ### Część 3B: Ku Dun Thuaidh
