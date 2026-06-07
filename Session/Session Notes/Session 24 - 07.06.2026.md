@@ -31,7 +31,7 @@ CZARNE BAJORO Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet 
 OSUWISKO Różowe osuwisko i zbieracz gliny - Skoczna Zwierzyna & Osuwisko
 ### Część 2: Lidrelic
 
-Gracze docierają przed leśny ołtarz, gdzie czeka LLM (Ley-Line Moderator) Parakleio. LLM Parakleio nie 
+Gracze docierają przed leśny Lidryński Obelisk, gdzie czeka LLM (Ley-Line Moderator) Parakleio. W chwili, kiedy Bezdrożni zbliżą się do Obelisku, rozpocznie się transfer, poczują mrowienie, a obelisk zacznie powoli migotać lawendowo. W tym też momencie budzi się LLM Parakleio, wg. którego nastąpiło złamanie protokołów i nieautoryzowane podłączenie do Lidry (którym okazuje się być Blaithin, jako owoc manipulacji Lidrą przez hitlera, gracze się o tym nie dowiedzą, chyba, że pod koniec jeśli blaithin zawali jakieś wisdom save'y albo padnie nieprzytomna, to będzie mogła usłyszeć w głowie komunikat LLM Parakleio (i jego imię)). W momencie pokonania LLM Parakleio zależnie od skali zniszczeń albo ten kończy zakłócanie transferu albo zostaje wybuchnięty. Z jego wnętrza wypada niewielki obiekt, jego jednostka pamięci, którą Konserwacja po otrzymaniu odpowiednich narzędzi może otworzyć, a potem przekazać Nawigacji do archiwum. Transfer kończy się sukcesem, wszyscy otrzymują poziom, czują się silniejsi.
 
 
 ### Część 3: Lekcje na Wrzosowisku, Downtime/Timeskip
