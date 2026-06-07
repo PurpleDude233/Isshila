@@ -39,7 +39,7 @@ PŁACZĄCA BRZOZA
 
 Treść komunikatu dla blaithin:
 
-" Ład. Ambicja. Zreinkarnowana. Zdrada. Gwałt. Balans. Kres. "
+"Ład. Ambicja. Zreinkarnowana. Zdrada. Gwałt. Balans. Kres. Sieć. Rozpad. Część. Brak. Siostra. Anomalia. Eksterminacja. Blaithin."
 
 ### Część 3: Lekcje na Wrzosowisku, Downtime/Timeskip
 
