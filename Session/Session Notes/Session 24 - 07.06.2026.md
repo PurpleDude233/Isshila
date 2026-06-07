@@ -23,7 +23,7 @@ Landmarks
  - [x] Leylineusz -- mężczyzna w zwiewnej, lnianej koszuli, niepoprawnie zapiętej i zwiewnym, aksamitnym robdeszanie. Włosy sine, a miejscami jak nocne niebo w mętnym jeziorze. Twarz gładka, spojrzenie opuszczone, puste, bez iskierek. Wysoki, ale nieco zgarbiony. Daje im questa by postawić ten kamyk (podaje kamyk) na szczycie tamtej (wskazuje na wiszącą w powietrzu wieżyczkę z kamyków). bardzo wymagające Dex saves któe mogą powtarzać, premia za współpracę. Położenie tam kamyka powstrzymuje koneic świata na pół wieku. Powie im to w taki sposób, żeby nie uwierzyli.
 
 
- - [ ] CZARNE BAJORO Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet za dnia. - **Bajoro** - Narzędzie LEylineusza Dwuzębowy Widelec
+ - [x] CZARNE BAJORO Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet za dnia. - **Bajoro** - Narzędzie LEylineusza Dwuzębowy Widelec
 
  - [ ] STROMY STRUMYK Strumienie biegnący po pniach pobliskich wierzb - Flowing Water
 mały pierdolec + mama - **Drapierznik mały z mamą**
