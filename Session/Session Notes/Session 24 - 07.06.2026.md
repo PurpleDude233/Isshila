@@ -15,7 +15,7 @@ Landmarks
 
  - [x] Wichrogaj miniaturowy jelonek skacze po kamieniach aby zjeść gruszkę - **Skoczna Zwierzyna**
 
- - [ ] KORYTRAWY Ściana wysokiej trawy mały pierdolec który przestraszył się dzika - **Drapierznik mały **
+ - [x] KORYTRAWY Ściana wysokiej trawy mały pierdolec który przestraszył się dzika - **Drapierznik mały **
 
  - [ ] Żółty Dąb -> Uschła paproć ->Grota -> Spruchniały Dąb -> Jaskinia
 
