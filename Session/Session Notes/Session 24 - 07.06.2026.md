@@ -27,7 +27,7 @@ STROMY STRUMYK Strumienie biegnący po pniach pobliskich wierzb - Flowing Water
 mały pierdolec + mama - Drapierznik mały z mamą
 
 CZARNE BAJORO Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet za dnia. - Bajoro
-
+ 
 OSUWISKO Różowe osuwisko i zbieracz gliny - Skoczna Zwierzyna & Osuwisko
 
 ### Część 2: Lekcje na Wrzosowisku, Downtime/Timeskip
