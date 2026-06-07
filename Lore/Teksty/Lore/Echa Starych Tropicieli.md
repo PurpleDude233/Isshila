@@ -4,7 +4,7 @@ Zbiór myśli poprzednich przywódców Łowców Wrzosowiska.
 
 **Echo Rhaama, "Usidlacza Niedźwiedzi", wiedzącego najwięcej o pułapkach.** 
 
-NAGRODA:
+NAGRODA: Pochwycające Sidła. 
 TREŚĆ: * *
 
 **Echo Dill, "Szponu Barkolotnika", nieustraszonej tropicielki i wiodącej pogoni.**
