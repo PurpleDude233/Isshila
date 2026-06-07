@@ -29,8 +29,10 @@ mały pierdolec + mama - Drapierznik mały z mamą
 CZARNE BAJORO Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet za dnia. - Bajoro
  
 OSUWISKO Różowe osuwisko i zbieracz gliny - Skoczna Zwierzyna & Osuwisko
+### Część 2: 
 
-### Część 2: Lekcje na Wrzosowisku, Downtime/Timeskip
+Gracze muszą odnaleźć drogą oraz przejść przez następujące
+### Część 3: Lekcje na Wrzosowisku, Downtime/Timeskip
 
 Następnego dnia rano mają okazje zobaczyć wiszące w powietrzy tysiące kropel, które powoli są zbierane przez druida i sprowadzane do morza, jak zapytają to opowie o tym, że to jego obowiązek i co by się stało gdyby tego nie robił (ważne, bo to się stanie potem w Dun Thuaidh)
 
@@ -49,20 +51,15 @@ Mapy są różne i opisują zupełnie inne krajobrazy, są na dobrą sprawę bez
 
 
 
-### Część 3A: Ku Łowczycy
+### Część 4A: Ku Łowczycy
 
 
 
 
-### Część 3B: Ku Dun Thuaidh
-
-Na pierwszy rzut oka Nawigacja się jebła. Stoicie w głębokiej, zielonej puszczy, poza pojedynczymi sarnami i paroma dzięciołami nikogo tu nie było od lat. A jednak, przed wami prezentuje się okazały pień porażonego przed laty drzewa, który pod warstwą mchów i porostów zdaje się mieć pojedyncze zdobienia (najlepiej żeby poznała je Rhazani, bo to te same barwniki których używała jej matka jako łowczyni). 
-
-Wewnątrz pnia czeka kolekcja 
-
-
-### Część 3C: Lidryńska Rzeźba
+### Część 4B: Ku Dun Thuaidh
 
 Na pierwszy rzut oka Nawigacja się jebła. Stoicie w głębokiej, zielonej puszczy, poza pojedynczymi sarnami i paroma dzięciołami nikogo tu nie było od lat. A jednak, przed wami prezentuje się okazały pień porażonego przed laty drzewa, który pod warstwą mchów i porostów zdaje się mieć pojedyncze zdobienia (najlepiej żeby poznała je Rhazani, bo to te same barwniki których używała jej matka jako łowczyni). 
 
 Wewnątrz pnia czeka kolekcja 
+
+
