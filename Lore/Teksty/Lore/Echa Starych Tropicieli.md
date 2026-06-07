@@ -4,7 +4,8 @@ Zbiór myśli poprzednich przywódców Łowców Wrzosowiska.
 
 **Echo Rhaama, "Usidlacza Niedźwiedzi", wiedzącego najwięcej o pułapkach.** 
 
-NAGRODA: Pochwycające Sidła. 
+NAGRODA: 
+Chwytające Sidła. As an action you deploy a trap that binds a Large or a smaller creature. The creature has to roll STR save 18 or become restrained. At the start of each turn the creature repeats the check, with each failed attempt lowering the save DC by -2.
 TREŚĆ: * *
 
 **Echo Dill, "Szponu Barkolotnika", nieustraszonej tropicielki i wiodącej pogoni.**
