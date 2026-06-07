@@ -38,7 +38,9 @@ W momencie pokonania LLM Parakleio zależnie od skali zniszczeń albo ten kończ
 
 ### Część 3: Lekcje na Wrzosowisku, Downtime/Timeskip
 
-!!!Rhazani może być zainteresowana konsumpcją kropel z pajęczyny.
+!!!Rhazani może być zainteresowana konsumpcją kropel z pajęczyny. 
+Treść wspomnień:
+[[Echa Starych Tropicieli]]
 
 Następnego dnia rano mają okazje zobaczyć wiszące w powietrzy tysiące kropel, które powoli są zbierane przez druida i sprowadzane do morza, jak zapytają to opowie o tym, że to jego obowiązek i co by się stało gdyby tego nie robił (ważne, bo to się stanie potem w Dun Thuaidh)
 

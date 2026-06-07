@@ -1,11 +1,15 @@
 Zbiór myśli poprzednich przywódców Łowców Wrzosowiska.
 
-Echo Rhaama, "Usidlacza Niedźwiedzi", wiedzącego najwięcej o pułapkach. 
+------
 
-Echo Dill, "Szponu Barkolotnika", nieustraszonej tropicielki i wiodącej pogoni.
+**Echo Rhaama, "Usidlacza Niedźwiedzi", wiedzącego najwięcej o pułapkach.** 
 
-Echo Irre, "Doglądającej Cieni Pośród Koron Drzew", najuważniejszej z matek klanu.
+**
 
-Echo Vaighre, " Kroczącego Pośród Węży", wielkiego poskramiacza gadów.
+**Echo Dill, "Szponu Barkolotnika", nieustraszonej tropicielki i wiodącej pogoni.**
 
-Echo Anatra " Jaskółczej Strzały", 
+**Echo Irre, "Doglądającej Cieni Pośród Koron Drzew", najuważniejszej z matek klanu.**
+
+**Echo Vaighre, " Kroczącego Pośród Węży", wielkiego poskramiacza gadów.**
+
+**Echo Anatra " Jaskółczej Strzały",** 
