@@ -25,7 +25,7 @@
     
 5. Piątą przestrogę posiadła sroga sroka.
     
-6. Szóstą przestrogę wysłuchał krętorogi o ostrym spojrzeniu.
+6. Szóstej przestrogi wysłuchał krętorogi o ostrym spojrzeniu.
     
 7. Siódmą przestrogę przyjął z pokorą niedźwiedź łagodnego oblicza.
 ## Lekcje Oriela

@@ -13,22 +13,22 @@ Gracze muszą odnaleźć drogą oraz przejść przez następujące
 
 Landmarks
 
-Wichrogaj miniaturowy jelonek skacze po kamieniach aby zjeść gruszkę - Skoczna Zwierzyna
+ - [x] Wichrogaj miniaturowy jelonek skacze po kamieniach aby zjeść gruszkę - **Skoczna Zwierzyna**
 
-KORYTRAWY Ściana wysokiej trawy mały pierdolec który przestraszył się dzika - Drapierznik mały 
+ - [x] KORYTRAWY Ściana wysokiej trawy mały pierdolec który przestraszył się dzika - **Drapierznik mały **
 
-Żółty Dąb -> Uschła paproć ->Grota -> Spruchniały Dąb -> Jaskinia
+ - [ ] Żółty Dąb -> Uschła paproć ->Grota -> Spruchniały Dąb -> Jaskinia
 
-OWALNY SKALNIAK kupki z głazów - Stone Towers, na krańcach skałki robią się ostre, kolczaste 
-+ Leylineusz -- mężczyzna w zwiewnej, lnianej koszuli, niepoprawnie zapiętej i zwiewnym, aksamitnym robdeszanie. Włosy sine, a miejscami jak nocne niebo w mętnym jeziorze. Twarz gładka, spojrzenie opuszczone, puste, bez iskierek. Wysoki, ale nieco zgarbiony. Daje im questa by postawić ten kamyk (podaje kamyk) na szczycie tamtej (wskazuje na wiszącą w powietrzu wieżyczkę z kamyków). bardzo wymagające Dex saves któe mogą powtarzać, premia za współpracę. Położenie tam kamyka powstrzymuje koneic świata na pół wieku. Powie im to w taki sposób, żeby nie uwierzyli.
+ - [x] OWALNY SKALNIAK kupki z głazów - **Stone Towers**, na krańcach skałki robią się ostre, kolczaste 
+ - [x] Leylineusz -- mężczyzna w zwiewnej, lnianej koszuli, niepoprawnie zapiętej i zwiewnym, aksamitnym robdeszanie. Włosy sine, a miejscami jak nocne niebo w mętnym jeziorze. Twarz gładka, spojrzenie opuszczone, puste, bez iskierek. Wysoki, ale nieco zgarbiony. Daje im questa by postawić ten kamyk (podaje kamyk) na szczycie tamtej (wskazuje na wiszącą w powietrzu wieżyczkę z kamyków). bardzo wymagające Dex saves któe mogą powtarzać, premia za współpracę. Położenie tam kamyka powstrzymuje koneic świata na pół wieku. Powie im to w taki sposób, żeby nie uwierzyli.
 
 
-STROMY STRUMYK Strumienie biegnący po pniach pobliskich wierzb - Flowing Water
-mały pierdolec + mama - Drapierznik mały z mamą
+ - [x] CZARNE BAJORO Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet za dnia. - **Bajoro** - Narzędzie LEylineusza Dwuzębowy Widelec
 
-CZARNE BAJORO Czarne bajoro z bomblami błota, żaby, pełne świetlików nawet za dnia. - Bajoro
+ - [ ] STROMY STRUMYK Strumienie biegnący po pniach pobliskich wierzb - Flowing Water
+mały pierdolec + mama - **Drapierznik mały z mamą**
  
-OSUWISKO Różowe osuwisko i zbieracz gliny - Skoczna Zwierzyna & Osuwisko
+ - [ ] OSUWISKO Różowe osuwisko i zbieracz gliny - **Skoczna Zwierzyna & Osuwisko**
 ### Część 2: Lidrelic
 
 Gracze docierają przed leśny Lidryński Obelisk, gdzie czeka LLM (Ley-Line Moderator) Parakleio. W chwili, kiedy Bezdrożni zbliżą się do Obelisku, rozpocznie się transfer, poczują mrowienie, a obelisk zacznie powoli migotać lawendowo. W tym też momencie budzi się LLM Parakleio, wg. którego nastąpiło złamanie protokołów i nieautoryzowane podłączenie do Lidry (którym okazuje się być Blaithin, jako owoc manipulacji Lidrą przez hitlera, gracze się o tym nie dowiedzą, chyba, że pod koniec jeśli blaithin zawali jakieś wisdom save'y albo padnie nieprzytomna, to będzie mogła usłyszeć w głowie komunikat LLM Parakleio (i jego imię)). 
