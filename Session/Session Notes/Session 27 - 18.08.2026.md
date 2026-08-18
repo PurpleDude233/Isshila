@@ -34,20 +34,29 @@ względnie szybko pozbyć się intruzów(może być po dobroci byleby sobie posz
 
 
 ### Część 1.2: Marsz, Marsz!
-Motywowani przez zdeterminowane słowa katastiona, kościelnicy przygotowują się do ostatniego sz
+Motywowani przez zdeterminowane słowa katastiona, kościelnicy przygotowują się do ostatecznego marszu na norę łowczycy
+(bubi fristajl?)
 
 
 
 
-### Część 4A: Ku Łowczycy
+### Część 2: Posłaniec Niebios
+gadanie z ptakiem idk
+
+(bubi fristajl?)
+
+### Część 3: Impas
+
+paru padło po obu stronach na ten moment nic się nie dzieje, jak w tytule
 
 
+### Część 4: Bitka
+katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie
 
+Płyń święty ogniu!
+Fluere, ignis sanctus!
 
-### Część 4B: Ku Dun Thuaidh
+Parszywe wilki niech umrą pod butem wojowników Bożych!
+Pessimi lupi sub violenta bellatorum Dei moriantur!
 
-Na pierwszy rzut oka Nawigacja się jebła. Stoicie w głębokiej, zielonej puszczy, poza pojedynczymi sarnami i paroma dzięciołami nikogo tu nie było od lat. A jednak, przed wami prezentuje się okazały pień porażonego przed laty drzewa, który pod warstwą mchów i porostów zdaje się mieć pojedyncze zdobienia (najlepiej żeby poznała je Rhazani, bo to te same barwniki których używała jej matka jako łowczyni). 
-
-Wewnątrz pnia czeka kolekcja 
-
-
+niczym święta Laurentia, 
