@@ -34,7 +34,7 @@ względnie szybko pozbyć się intruzów(może być po dobroci byleby sobie posz
 
 
 ### Część 1.2: Marsz, Marsz!
-Motywowani przez zdeterminowane słowa katastiona, kościelnicy przygotowują 
+Motywowani przez zdeterminowane słowa katastiona, kościelnicy przygotowują się do ostatniego sz
 
 
 
