@@ -37,6 +37,12 @@ względnie szybko pozbyć się intruzów(może być po dobroci byleby sobie posz
 Motywowani przez zdeterminowane słowa katastiona, kościelnicy przygotowują się do ostatecznego marszu na norę łowczycy
 (bubi fristajl?)
 
+jak nie fristajl to tu ma trochę nonsens napisany na kolanie tihi
+
+
+Światło Aetheriosa niech zapłonie w waszych sercach i oczach, wasze tarcze niech nie ugną się przed ciężarem ciemności w której przyszło wam kroczyć, wasze dłonie niech nie zadrżą w obliczu wroga, nie wahajcie się szerzyć światłość albowiem wahanie pozostawia w waszych sercach miejsce na strach
+
+Aetherii lux in cordibus et oculis accensa sit, ne scuta tua ante tenebras, in quibus ambulandum est, incurvent, ne manus tuae in facie hostium tremant, lucem spargere non dubitant. cunctatio enim in cordibus tuis timore locum relinquit
 
 
 
@@ -45,7 +51,7 @@ gadanie z ptakiem idk
 
 (bubi fristajl?)
 
-### Część 3: Impas
+### Część 3: Imp ass
 
 paru padło po obu stronach na ten moment nic się nie dzieje, jak w tytule
 
@@ -53,10 +59,17 @@ paru padło po obu stronach na ten moment nic się nie dzieje, jak w tytule
 ### Część 4: Bitka
 katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie
 
+
 Płyń święty ogniu!
+
 Fluere, ignis sanctus!
 
+
 Parszywe wilki niech umrą pod butem wojowników Bożych!
+
 Pessimi lupi sub violenta bellatorum Dei moriantur!
 
-niczym święta Laurentia, 
+
+Bądźcie pełni odwagi niczym święta Laurentia, męczenniczka broniąca sieroty przed wygłodniałymi bestiami, będźcie wytrwali niczym błogosławiony Marsjasz klęczący przez wiele dni i nocy u stóp Aetheriosa
+
+Tam audax esto quam S. Laurentia, martyr, qui pupillum ab esurientibus bestiis defendit, tam constans quam beatus Marsyas genuflexus per dies ac noctes ad pedes Aetherii
