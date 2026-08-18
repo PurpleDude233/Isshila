@@ -15,5 +15,6 @@ Karczmarka(???) - Milsza Króliczka
 [[Paweł]](Paweł) - Goły Outsider
 [[Siobhan]](Szawan) - Dead Girlfriend
 [[Síle]](Szile/a?) - Piersiasta Handlarka
+[[Saoirse]](Sirsze) - Jaszczurzca Hitlerka
 Stara Baba(???) - Skora Śmierci
 
