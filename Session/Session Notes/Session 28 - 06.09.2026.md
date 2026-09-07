@@ -13,13 +13,9 @@ Fragartach trivia
 
 ### Część 2: Caldar losing my religion MACIEJ
 
-### Część 4: Bitka
-Runda 1: Otoczenie pola bitwy ogromną
-Runda 3:
-Runda 5:Ściana na wejściu
-Runda 7:
-Runda 10:Flegeton z niebios
-katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie
+Dać rhazani pochodzić po obozie, dać okazje rozmowy z zielonym, MUST HAVE CALDAR, wspomina o tym, że jest słaby i słabej wiary, że nie jest jak swój brat, którego przyszedł tu pomścić, jak brat, który mimo swej elfiej natury dorywnywał ludzkim klerykom w sile, że wyjątkowo na niego spadło błogosławieństwo pana. Że całe życie szedł za nim, a teraz **DROGA SIĘ URYWA I NIE MA DOKĄD PÓJŚĆ.**
+### Część 3: Bobuz
+
 
 Drużyna składa się z powrotem w całość, dajemy im okazję na poobcowanie sobie z rhazani albo ruszenie wgłąb obozu po katastiona. Ten odmawia powrotu bez insygniów, ale "daje się" przekonać na to, że oni je odzyskają. Wręcza im niewielkiego ognika.
 
@@ -28,7 +24,13 @@ Drużyna składa się z powrotem w całość, dajemy im okazję na poobcowanie s
 Drużyna schodzi pod ziemię, gdzie RACZEJ nie zabijają wilków gromu. Łowczyca, początkowo niechętna do rozmowy tylko na nich łypie i powarkuje, ale w końcu przemówi, zaznaczając, że od niezliczonych księżyców ani jedno słowo nie przeszło jej przez gardło i że decyduje się na to tylko dla dobra miotu. Po paru wymianach ognik rozpada się na popiół, a z góry słychać huk wznoszącego się pierścienia ognia.
 
 ### Część 6: Fiery duo
-katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie.
+Runda 1: Otoczenie pola bitwy ogromną
+Runda 3:
+Runda 5:Ściana na wejściu
+Runda 7:
+Runda 10:Flegeton z niebios
+katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie
+
 
 W tym czasie Laurus wychodzi drużynie na przeciw, zakazując im zbliżania się do archidiakona, nic sobie nie robiąc z ich próby zakończenia konfliktu. Wywiązuje się walka jeśli nie odpuszczą. Jeśli laurus oberwie zaklęciem, zostaje znokautowany i ucieka.
 
