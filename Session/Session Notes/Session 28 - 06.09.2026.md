@@ -13,8 +13,13 @@ Fragartach trivia
 
 ### Część 2: Caldar losing my religion MACIEJ
 
-Dać rhazani pochodzić po obozie, dać okazje rozmowy z zielonym, MUST HAVE CALDAR, wspomina o tym, że jest słaby i słabej wiary, że nie jest jak swój brat, którego przyszedł tu pomścić, jak brat, który mimo swej elfiej natury dorywnywał ludzkim klerykom w sile, że wyjątkowo na niego spadło błogosławieństwo pana. Że całe życie szedł za nim, a teraz **DROGA SIĘ URYWA I NIE MA DOKĄD PÓJŚĆ.**
-### Część 3: Power of friendship MACIEJ 
+### Część 4: Bitka
+Runda 1: Otoczenie pola bitwy ogromną
+Runda 3:
+Runda 5:Ściana na wejściu
+Runda 7:
+Runda 10:Flegeton z niebios
+katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie
 
 Drużyna składa się z powrotem w całość, dajemy im okazję na poobcowanie sobie z rhazani albo ruszenie wgłąb obozu po katastiona. Ten odmawia powrotu bez insygniów, ale "daje się" przekonać na to, że oni je odzyskają. Wręcza im niewielkiego ognika.
 
