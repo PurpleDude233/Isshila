@@ -7,7 +7,7 @@
 [[Caldar]]
 
 ---
-### Część 1: Ptaszor tokink
+### Część 1: Ptaszor tokink BUBA
 
 ### Część 3: Imp ass
 
