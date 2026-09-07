@@ -13,8 +13,8 @@ Fragartach trivia
 
 ### Część 2: Caldar losing my religion MACIEJ
 
-Dać rhazani pochodzić po obozie, dać okazje rozmowy z zielonym, MUST HAVE CALDAR, wspomina o tym, że jest słaby i słabej wiary, że nie jest jak
-### Część 3: Imp ass
+Dać rhazani pochodzić po obozie, dać okazje rozmowy z zielonym, MUST HAVE CALDAR, wspomina o tym, że jest słaby i słabej wiary, że nie jest jak swój brat, którego przyszedł tu pomścić, jak brat, który mimo swej elfiej natury dorywnywał ludzkim klerykom w sile, że wyjątkowo na niego spadło błogosławieństwo pana. Że całe życie szedł za nim, a teraz **DROGA SIĘ URYWA I NIE MA DOKĄD PÓJŚĆ.**
+### Część 3: Power of friendship MACIEJ 
 
 paru padło po obu stronach na ten moment nic się nie dzieje, jak w tytule
 
