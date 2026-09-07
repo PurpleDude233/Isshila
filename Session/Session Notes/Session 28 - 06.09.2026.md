@@ -26,12 +26,13 @@ Drużyna składa się z powrotem w całość, dajemy im okazję na poobcowanie s
 
 Drużyna schodzi pod ziemię, gdzie RACZEJ nie zabijają wilków gromu. Łowczyca, początkowo niechętna do rozmowy tylko na nich łypie i powarkuje, ale w końcu przemówi, zaznaczając, że od niezliczonych księżyców ani jedno słowo nie przeszło jej przez gardło i że decyduje się na to tylko dla dobra miotu. Po paru wymianach ognik rozpada się na popiół, a z góry słychać huk wznoszącego się pierścienia ognia.
 
+
 ### Część 6: Fiery duo
-Runda 1: Otoczenie pola bitwy ogromną
-Runda 3:
+Runda 1: Otoczenie pola bitwy ogromną ścianą ognia
+Runda 3: Mass bless
 Runda 5: Ściana na wejściu
-Runda 7:
-Runda 10: Flegeton z niebios
+Runda 7: Flegeton z niebios
+
 katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie
 
 
