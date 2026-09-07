@@ -14,6 +14,9 @@ Fragartach trivia
 ### Część 2: Caldar losing my religion MACIEJ
 
 Dać rhazani pochodzić po obozie, dać okazje rozmowy z zielonym, MUST HAVE CALDAR, wspomina o tym, że jest słaby i słabej wiary, że nie jest jak swój brat, którego przyszedł tu pomścić, jak brat, który mimo swej elfiej natury dorywnywał ludzkim klerykom w sile, że wyjątkowo na niego spadło błogosławieństwo pana. Że całe życie szedł za nim, a teraz **DROGA SIĘ URYWA I NIE MA DOKĄD PÓJŚĆ.**
+
+Caldar: elf z wyspy Sargantui (Sargantua), wraz z bratem Delioranem był głęboko oddany wierze w aetheriosa. Jego brat jak na elfa był wyjątkowo potent, prawie spełniając standardy oczekiwane od przyszłych rytualistów. Caldar natomiast miał bardzo niski potencjał. Żeby nie zostawiać brata samego Delioran wraz z nim dołączył do trygnizan, którzy rekrutowali zarówno ludzi i elfy. Caldar wiedział, że Delioran zrobił to dla niego. Caldar ma żal do ojca Rufusa i do siebie za śmierć brata.
+
 ### Część 3: Bobuz
 
 
@@ -23,12 +26,13 @@ Drużyna składa się z powrotem w całość, dajemy im okazję na poobcowanie s
 
 Drużyna schodzi pod ziemię, gdzie RACZEJ nie zabijają wilków gromu. Łowczyca, początkowo niechętna do rozmowy tylko na nich łypie i powarkuje, ale w końcu przemówi, zaznaczając, że od niezliczonych księżyców ani jedno słowo nie przeszło jej przez gardło i że decyduje się na to tylko dla dobra miotu. Po paru wymianach ognik rozpada się na popiół, a z góry słychać huk wznoszącego się pierścienia ognia.
 
-### Część 5: Fiery duo
-Runda 1: Otoczenie pola bitwy ogromną
-Runda 3:
-Runda 5:Ściana na wejściu
-Runda 7:
-Runda 10:Flegeton z niebios
+
+### Część 6: Fiery duo
+Runda 1: Otoczenie pola bitwy ogromną ścianą ognia
+Runda 3: Mass bless
+Runda 5: Ściana na wejściu
+Runda 7: Flegeton z niebios
+
 katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie
 
 
