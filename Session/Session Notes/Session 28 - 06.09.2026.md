@@ -23,11 +23,11 @@ katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoj
 
 Drużyna składa się z powrotem w całość, dajemy im okazję na poobcowanie sobie z rhazani albo ruszenie wgłąb obozu po katastiona. Ten odmawia powrotu bez insygniów, ale "daje się" przekonać na to, że oni je odzyskają. Wręcza im niewielkiego ognika.
 
-### Część 4: Nora
+### Część 5: Nora
 
 Drużyna schodzi pod ziemię, gdzie RACZEJ nie zabijają wilków gromu. Łowczyca, początkowo niechętna do rozmowy tylko na nich łypie i powarkuje, ale w końcu przemówi, zaznaczając, że od niezliczonych księżyców ani jedno słowo nie przeszło jej przez gardło i że decyduje się na to tylko dla dobra miotu. Po paru wymianach ognik rozpada się na popiół, a z góry słychać huk wznoszącego się pierścienia ognia.
 
-### Część 4: Fiery duo
+### Część 6: Fiery duo
 katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie.
 
 W tym czasie Laurus wychodzi drużynie na przeciw, zakazując im zbliżania się do archidiakona, nic sobie nie robiąc z ich próby zakończenia konfliktu. Wywiązuje się walka jeśli nie odpuszczą. Jeśli laurus oberwie zaklęciem, zostaje znokautowany i ucieka.
