@@ -13,6 +13,11 @@ paru padło po obu stronach na ten moment nic się nie dzieje, jak w tytule
 
 
 ### Część 4: Bitka
+Runda 1: Otoczenie pola bitwy ogromną
+Runda 3:
+Runda 5:Ściana na wejściu
+Runda 7:
+Runda 10:Flegeton z niebios
 katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie
 
 
