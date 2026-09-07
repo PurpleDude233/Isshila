@@ -43,7 +43,7 @@ Na czole Katastiona zaczyna malować się niewielki siniak. Jego twarz jest bled
 
 CORE
 
-Klatka piersiowa Katastiona wydzia
+Klatka piersiowa Katastiona wydziera się z jego ciała, szereg powykrzywianych żeber
 Skąd mogłaś wiedzieć, że ciało cudzoziemca wystawione na magię Isshili zareaguje w tak drastyczny sposób?
 
 Płyń święty ogniu!
