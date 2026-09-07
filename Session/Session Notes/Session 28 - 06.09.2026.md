@@ -29,6 +29,19 @@ W tym czasie Laurus wychodzi drużynie na przeciw, zakazując im zbliżania się
 
 Jeśli Katastion oberwie zaklęciem, to się zaczyna zabawa i kończy sesja.
 
+Cierniowa pułapka
+Nasionko wbija się w nogę katastiona i wrasta. Jego skóra pęka i cierniste strugi krwi zataczają koło wokół katastiona, miażdżąc jego ciało, z zadanych ran wyzwalająć kolejne ciern
+
+Hold Person
+Katastion sztywnieje, wszyscy sztywnieją i bledną. Po chwili podmuch wiatru świszczy przed nimi i płaty ich skóry odrywają się i rozpadają w pył.
+
+Vicious Mockery
+
+
+Crown of Madness.
+
+Slow
+
 
 Płyń święty ogniu!
 
