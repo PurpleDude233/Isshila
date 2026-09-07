@@ -1,4 +1,3 @@
-
 ### Cast:
 [[Temir]]
 [[Łowczyca]]
