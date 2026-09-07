@@ -19,11 +19,11 @@ Dać rhazani pochodzić po obozie, dać okazje rozmowy z zielonym, MUST HAVE CAL
 
 Drużyna składa się z powrotem w całość, dajemy im okazję na poobcowanie sobie z rhazani albo ruszenie wgłąb obozu po katastiona. Ten odmawia powrotu bez insygniów, ale "daje się" przekonać na to, że oni je odzyskają. Wręcza im niewielkiego ognika.
 
-### Część 5: Nora
+### Część 4: Nora
 
 Drużyna schodzi pod ziemię, gdzie RACZEJ nie zabijają wilków gromu. Łowczyca, początkowo niechętna do rozmowy tylko na nich łypie i powarkuje, ale w końcu przemówi, zaznaczając, że od niezliczonych księżyców ani jedno słowo nie przeszło jej przez gardło i że decyduje się na to tylko dla dobra miotu. Po paru wymianach ognik rozpada się na popiół, a z góry słychać huk wznoszącego się pierścienia ognia.
 
-### Część 6: Fiery duo
+### Część 5: Fiery duo
 Runda 1: Otoczenie pola bitwy ogromną
 Runda 3:
 Runda 5:Ściana na wejściu
