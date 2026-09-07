@@ -30,18 +30,21 @@ W tym czasie Laurus wychodzi drużynie na przeciw, zakazując im zbliżania się
 Jeśli Katastion oberwie zaklęciem, to się zaczyna zabawa i kończy sesja.
 
 Cierniowa pułapka
-Nasionko wbija się w nogę katastiona i wrasta. Jego skóra pęka i cierniste strugi krwi zataczają koło wokół katastiona, miażdżąc jego ciało, z zadanych ran wyzwalająć kolejne ciern
+Nasionko wbija się w nogę katastiona i wrasta. Jego skóra pęka i cierniste strugi krwi zataczają koło wokół katastiona, miażdżąc jego ciało, z zadanych ran wyzwalająć kolejne cierniste strugi.
 
-Hold Person
+Hold Person/ Slow
 Katastion sztywnieje, wszyscy sztywnieją i bledną. Po chwili podmuch wiatru świszczy przed nimi i płaty ich skóry odrywają się i rozpadają w pył.
 
 Vicious Mockery
-
+Katastion się nie śmieje, jeśli już, to bawi go tak prymitywne zaklęcie. Ale się nie śmieje. Uśmiecha się, jeśli można tak nazwać natężające się spazmy na jego twarzy. Nagle jeden z tych spazmów wykrzywia go tak nienaturalnie, że krawędzie jego ust pękają, i wraz z rytualsitami pada wijąc się na ziemię, ciężko dysząc i wydając z siebie dziwne pojękiwania.
 
 Crown of Madness.
+Na czole Katastiona zaczyna malować się niewielki siniak. Jego twarz jest bledsza niż myślałaś niż to możliwe. Patrzy na ciebie z uniesioną brwią, jakby z niedowierzania, ten wyraz twarzy zastępuje szok, kiedy rosnący siniak czernieje, a po jego czole przebiega teraz poziome pęknięcie. Powolnym ruchem przykłada dłoń do twarzy, a ta się kruszy.
 
-Slow
+CORE
 
+Klatka piersiowa Katastiona wydzia
+Skąd mogłaś wiedzieć, że ciało cudzoziemca wystawione na magię Isshili zareaguje w tak drastyczny sposób?
 
 Płyń święty ogniu!
 
