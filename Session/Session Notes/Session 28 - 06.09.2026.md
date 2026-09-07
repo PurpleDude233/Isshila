@@ -9,6 +9,11 @@
 ---
 ### Część 1: Ptaszor tokink BUBA
 
+Fragartach trivia
+
+### Część 2: Caldar losing my religion MACIEJ
+
+Dać rhazani pochodzić po obozie, dać okazje rozmowy z zielonym, MUST HAVE CALDAR, wspomina o tym, że jest słaby i słabej wiary, że nie jest jak
 ### Część 3: Imp ass
 
 paru padło po obu stronach na ten moment nic się nie dzieje, jak w tytule
