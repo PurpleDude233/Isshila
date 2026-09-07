@@ -50,7 +50,7 @@ Na czole Katastiona zaczyna malować się niewielki siniak. Jego twarz jest bled
 
 CORE
 
-Klatka piersiowa Katastiona wydziera się z jego ciała, szereg powykrzywianych żeber
+Klatka piersiowa Katastiona wydziera się z jego ciała, szereg białych żeber zdobi teraz jego tors w miejscu, gdzie jeszcze przed chwilą znajdowała się powykrzywiana szyja. Przerażenie na twarzy katastiona znika, kiedy cała twarz dzieli się w pół, a on, wraz ze swoimi apostołami zlewa się w dygoczącą masę chrząstek, mięśni, rogów i kości.
 Skąd mogłaś wiedzieć, że ciało cudzoziemca wystawione na magię Isshili zareaguje w tak drastyczny sposób?
 
 Płyń święty ogniu!
