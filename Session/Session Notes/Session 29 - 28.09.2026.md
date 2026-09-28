@@ -36,7 +36,7 @@ Runda 3: Mass bless
 Nagle ogniki, które jeszcze przed chwilą trawiły gałęzie i przesuszone konary znieruchomiały, po czym wzniosły się ku niebu i zatańczyły w koło, po chwili opadając na każdego z wojowników w postaci płonącej aureoli.
 
 Runda 5: Ściana na wejściu
-Słyszycie kłębiące się za waszymi plecami ogniste języki, które w przeciągu sekund zaplatają się w ścianę ognia, odgradzając każdą istotę wewnątrz nory od powierzchni. 
+Słyszycie kłębiące się za waszymi plecami ogniste języki, które w przeciągu sekund zaplatają się w ścianę ognia, odgradzając każdą istotę wewnątrz nory od powierzchni. To kwestia czasu, zanim ogień wygna z niej wszelkie życie.
 
 Runda 7: Flegeton z niebios
 
