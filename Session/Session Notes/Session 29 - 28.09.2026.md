@@ -10,6 +10,8 @@
 ### Część 1: Nora
 Przechodzą pośród naelektryzowanych grzybów, ścian przez które przebijają się lidryńskie symbole przykryte mchem i porostami
 
+W ciemnych odnogach jaskini przyczajone są w ciemności dziesiątki par oczu, rozświetlane tylko przez wyładowania które od czasu do czasu przechodzą po ich kolcach na grzbiecie
+
 
 
 Drużyna schodzi pod ziemię, gdzie RACZEJ nie zabijają wilków gromu. Łowczyca, początkowo niechętna do rozmowy tylko na nich łypie i powarkuje, ale w końcu przemówi, zaznaczając, że od niezliczonych księżyców ani jedno słowo nie przeszło jej przez gardło i że decyduje się na to tylko dla dobra miotu. Po paru wymianach ognik rozpada się na popiół, a z góry słychać huk wznoszącego się pierścienia ognia.
