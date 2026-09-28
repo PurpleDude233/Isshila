@@ -32,8 +32,12 @@ Drużyna schodzi pod ziemię, gdzie RACZEJ nie zabijają wilków gromu. Łowczyc
 
 ### Część 2: Fiery duo
 Runda 1: Otoczenie pola bitwy ogromną ścianą ognia
-Runda 3: Mass bless
+Runda 3: Mass bless 
+Nagle ogniki, które jeszcze przed chwilą trawiły gałęzie i przesuszone konary znieruchomiały, po czym wzniosły się ku niebu i zatańczyły w koło, po chwili opadając na każdego z wojowników w postaci płonącej aureoli.
+
 Runda 5: Ściana na wejściu
+Słyszycie kłębiące się za waszymi plecami ogniste języki, które w przeciągu sekund zaplatają się w ścianę ognia, odgradzając każdą istotę wewnątrz nory od powierzchni. 
+
 Runda 7: Flegeton z niebios
 
 katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie
