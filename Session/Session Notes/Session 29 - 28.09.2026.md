@@ -39,7 +39,7 @@ Runda 5: Ściana na wejściu
 Słyszycie kłębiące się za waszymi plecami ogniste języki, które w przeciągu sekund zaplatają się w ścianę ognia, odgradzając każdą istotę wewnątrz nory od powierzchni. To kwestia czasu, zanim ogień wygna z niej wszelkie życie.
 
 Runda 7: Flegeton z niebios
-
+Powietrze zaczyna pachnąć bardziej niż kiedykolwiek. Najpierw jak burza, potem jak siarka, a teraz, wasze nozdrza czują mdły aromat bulgoczącej smoły. Na niebi
 katastion próbuje drąc mordę zebrać resztki swych sił i schannellować swoje moce bozi i wzywa swoich followerów raz do strzału raz do ognia raz do siebie. krzyczy jakieś święte gadanie
 
 
