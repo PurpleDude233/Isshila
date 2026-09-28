@@ -37,7 +37,7 @@ Drużyna schodzi pod ziemię, gdzie RACZEJ nie zabijają wilków gromu. Łowczyc
 Runda 1: Otoczenie pola bitwy ogromną ścianą ognia
 Runda 3: Mass bless 
 *Tam audax esto quam sancta Laurentia,* 
-*tam constans quam beatus Marsyas*
+*tam constans esto quam beatus Marsyas*
 *Sancta laurentia*
 *Beatus Marsyas*
 Nagle ogniki, które jeszcze przed chwilą trawiły gałęzie i przesuszone konary znieruchomiały, po czym wzniosły się ku niebu i zatańczyły w koło, po chwili opadając na każdego z wojowników w postaci płonącej aureoli.
