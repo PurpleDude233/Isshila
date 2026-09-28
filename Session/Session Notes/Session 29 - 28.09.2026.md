@@ -13,7 +13,12 @@ Przechodzą pośród naelektryzowanych grzybów, ścian przez które przebijają
 W ciemnych odnogach jaskini przyczajone są w ciemności dziesiątki par oczu, rozświetlane tylko przez wyładowania które od czasu do czasu przechodzą po ich kolcach na grzbiecie
 
 
-Kalam swój pysk ludzką mową, ale dla dobra miotu gotowa jestem na to i na większe poświęcenia. Wisi nad nami śmierć i chciałabym wierzyć że to wy ją niesiecie abym mogła pozbyć się was i rzucić na pożarcie mym dzieciom. Ale dobrze wiem, że ci którzy ją niosą plugawią teraz swoim smrodem ziemię nad naszymi głowami. 
+Od niezliczonych księżyców ani jedno słowo nie przeszło mi przez gardło. Kalam swój pysk ludzką mową, ale dla dobra miotu gotowa jestem na to i na większe poświęcenia. Wisi nad nami śmierć i chciałabym wierzyć że to wy ją niesiecie abym mogła pozbyć się was i rzucić na pożarcie mym dzieciom. Ale dobrze wiem, że ci którzy ją niosą plugawią teraz swoim smrodem ziemię nad naszymi głowami. 
+
+
+
+nie ma insygniów
+
 
 czuję na was znamię innych wielkich bestii
 
@@ -21,8 +26,6 @@ jak bezczelni
 
 
 lidra ruins wątek - to nie jest miejsce dla niej i dla jej miotu. "Lepiej sczeznąć na powierzchni niż postawić łapę w miejscu umarłych"
-
-nie ma insygniów
 
 
 
