@@ -36,14 +36,19 @@ Drużyna schodzi pod ziemię, gdzie RACZEJ nie zabijają wilków gromu. Łowczyc
 ### Część 2: Fiery duo
 Runda 1: Otoczenie pola bitwy ogromną ścianą ognia
 Runda 3: Mass bless 
+*Tam audax esto quam sancta Laurentia,* 
+*tam constans quam beatus Marsyas*
+*Sancta laurentia*
+*Beatus Marsyas*
 Nagle ogniki, które jeszcze przed chwilą trawiły gałęzie i przesuszone konary znieruchomiały, po czym wzniosły się ku niebu i zatańczyły w koło, po chwili opadając na każdego z wojowników w postaci płonącej aureoli.
 
 Runda 5: Ściana na wejściu
+*Miserabiles lupi, sub calce bellatorum dei, perite*
 Słyszycie kłębiące się za waszymi plecami ogniste języki, które w przeciągu sekund zaplatają się w ścianę ognia, odgradzając każdą istotę wewnątrz nory od powierzchni. To kwestia czasu, zanim ogień wygna z niej wszelkie życie.
 
 Runda 7: Flegeton z niebios
 Powietrze zaczyna pachnąć bardziej niż kiedykolwiek. Najpierw jak burza, potem jak siarka, a teraz, wasze nozdrza czują mdły aromat bulgoczącej smoły. Na niebie gości teraz jeszcze jedno źródło światła, pozioma, rozżarzona linia, z której leniwie tryskają iskry. A Katastion przemawia:
-Fluere, ignis sanctus.
+*Fluere, ignis sanctus.*
 
 A płonąca oś rozszerza się, rozszarpując niebo, zalewając dolinę płynnym ogniem, spalającym drzewa, trawę i ciała zanim jeszcze je dotknie. Wodospady pożogi spływają powoli na całe uroczysko, wpływając w każdą dziuplę, norę i grotę. Nie ma dla nich już nadziei.
 
@@ -83,5 +88,4 @@ Pessimi lupi sub violenta bellatorum Dei moriantur!
 
 Bądźcie pełni odwagi niczym święta Laurentia, męczenniczka broniąca sieroty przed wygłodniałymi bestiami, będźcie wytrwali niczym błogosławiony Marsjasz klęczący przez wiele dni i nocy u stóp Aetheriosa
 
-Tam audax esto quam S. Laurentia, martyr, qui pupillum ab esurientibus bestiis defendit, tam constans quam beatus Marsyas genuflexus per dies ac noctes ad pedes Aetherii
-
+Tam audax esto quam Sancta Laurentia, martyr, qui pupillum ab esurientibus bestiis defendit, tam constans quam beatus Marsyas genuflexus per dies ac noctes ad pedes Aetherii
