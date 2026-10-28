@@ -41,6 +41,8 @@ Blade Cierpiętnisko
 
 Mowi im zeby ogolnie to wypierdalali bo ona nie chce mieć na podwórku czwórki, która nosi na sobie zapach starszy niż powierzchnia, i że jak zostawią Laurusa, to go pożrą, ale jako że to oni go upolowali, to mają do tego pierwszeństwo.
 
+
+nosicie na sobie wiele zapachów, a żaden z nich nie jest zapachem który chcę 
 ### Część 4: Podróż do wehikułu
 
 Podróż pieszo za wehikułem wydaje się absurdalna, zwłaszcza z Laurusem na plecach, gdyby nie fakt, że ten zdaje się co jakiś czas komuś jawić na horyzoncie. Po godzinach marszu zauważają, że w rzeczy samej się do niego zbliżają, co nie powinno być możliwe, bo ten nigdy nie przestał iść. Osoba, która niesie kulę czuje, że ta robi się lżejsza, kiedy kierują się w stronę wehikułu. Kiedy się ściemnia sprawa ma się podobnie, mogą albo przeć przez noc, albo rozbić obóz.
