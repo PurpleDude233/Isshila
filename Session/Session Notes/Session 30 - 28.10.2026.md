@@ -17,12 +17,14 @@ Ucieczka w popłochu w tumanach pary.
 
 
 ### Część 2: Pobojowisko oczami reszty maciej
-Dym i para łączą się w nieprzeniknianą, szarą kurtyną, falującą na wietrze nad pobojowiskiem. Pojedyncze wilki skomląc bardziej ze strachu niż z bólu rozpierzchły się, zostawiając to, co zostało z ciał zabitych eterytów. 
+Dym i para łączą się w nieprzeniknianą, szarą kurtyną, falującą na wietrze nad pobojowiskiem. 
+Popękana i dotknięta ogniem ziemia tli się wciąż i syczy jakby z bólu. 
+Pojedyncze wilki skomląc bardziej ze strachu niż z bólu rozpierzchły się, zostawiając to, co zostało z ciał zabitych eterytów.
 
 W okolicy  dalej widać kolumny pary i pyłu, buchające z miejsc, gdzie jeszcze przed chwilą stali gorliwi kościelnicy, pobłogosławieni przez Turygnas.
-Powalony przez was Laurus wydaje isę nietknięty czarem.
+Powalony przez was Laurus wydaje się nietknięty czarem. 
 
-Skowyt katastiona, któy zabiera za sobą zasłonę pary, powoli odsłaniając skalę zniszczeń. Nie ostał się jeden namiot, ani jedna księga, ali jedna śrubka Świętego Turygnasu.
+Skowyt katastiona, który zabiera za sobą zasłonę pary, powoli odsłaniając skalę zniszczeń. Nie ostał się jeden namiot, ani jedna księga, ali jedna śrubka Świętego Turygnasu.
 
 
 
