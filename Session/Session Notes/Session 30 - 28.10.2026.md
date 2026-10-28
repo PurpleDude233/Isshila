@@ -46,11 +46,11 @@ Podróż pieszo za wehikułem wydaje się absurdalna, zwłaszcza z Laurusem na p
 
 ### Część 5: Postój 
 
-Czas na zebranie myśli, wyjaśnienie sporów, wyznaczenie wart. Laurus śpi jak spał. Jednemu z wartowników objawia się sylwetka na skraju lasu, jeśli zdecyduje się za nim podążać, dostrzeże, że nosi barwy kościelników. Sylwetka nie da się złapaćTo Caldar, ale jeszcze tego nie wiedzą.
+Czas na zebranie myśli, wyjaśnienie sporów, wyznaczenie wart. Laurus śpi jak spał. Jednemu z wartowników objawia się sylwetka na skraju lasu, jeśli zdecyduje się za nim podążać, dostrzeże, że nosi barwy kościelników. Sylwetka nie da się złapać, jeśli zostanie zaatakowana, ucieknie, pozostawiając po sobie garść cuchnącej dymem słomy. To Caldar, ale jeszcze tego nie wiedzą.
 
 ### Część 6: W wehikule
 
-
+Jeśli ktoś zdecyduje sie wycikągnąć kulę/jakoś z nią interaktować możemy unieruchomić wehikuł i dać im podejść. Tam wita ich konserwacja. Laurus zostaje ocucony, zależnie od tego, czy przyznają mu się do zbrodni zareaguje inaczej, ale spróbuje ściągnąć ich do Dun Thuaidh, Północnej Stolicy Isshili, tam stacjonują inni jego bracia i bliscy poległych, oraz tam jeszcze może spełnić swoje powołanie w imieniu Żywoświętej Ardeny 
 
 ### Część 7: Komora Uosobień
 
