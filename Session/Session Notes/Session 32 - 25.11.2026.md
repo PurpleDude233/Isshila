@@ -8,9 +8,13 @@
 
 
 ### Część 1: Tajemnicza sylwetka part.3
-I co, było warto?
-Zdobyłaś już swoje odpowiedzi?
-
+Może kontynuujmy naszą grę.
+Gdzie mój dywan moja droga? 
+I co, było warto? (warto zrobić sobie kuku w oko)
+Zdobyłaś już swoje odpowiedzi? (na rzeczy związane z czwartą siostrą)
+Znalazłaś swoją bramę do czwartej siostry? 
+Powiedz proszę jakie kłamstwa nasunęły już ci się na usta w pogoni z prawdą?
+czy podzienie okazało się tak ciekawe jak liczyłaś?
 
 
 ### Część 2: Pobojowisko oczami reszty maciej
