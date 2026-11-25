@@ -4,9 +4,6 @@
 [[Cu Sith]]
 
 ---
-
-
-
 ### Część 1: 
 Wskutek feralnej konfrontacji z zarodnikowym dzikiem gracze odnajdują szczelinę w skale, prowadzącą do podziemnych korytarzy Lidry. Zależnie od tego jak do tego podejdą, spotkają Cu Sitha (Maciej)
 
