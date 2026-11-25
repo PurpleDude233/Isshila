@@ -10,6 +10,23 @@
 ### Część 1: 
 Wskutek feralnej konfrontacji z zarodnikowym dzikiem gracze odnajdują szczelinę w skale, prowadzącą do podziemnych korytarzy Lidry. Zależnie od tego jak do tego podejdą, spotkają Cu Sitha (Maciej)
 
+grzybowa umiejętność
+Lyra:    
+    - dwóch mężczyzn:
+    - Aernst, jeden w brudnym mundurze oficerskim, czubatym kapeluszu z długimi przerzedzonymi, tłustymi włosami w barwie błota,
+    - Vittun, drugi z chustą na czole, zasłaniającą brwi, na pierwszy rzut oka zbir, ale o dziecinnie dużych oczach i łagodnym uśmieszku.
+    - obydwaj mają na piersi stalowe insygnia (instytutu, te, co rysowałem, chyba były na filiżance czy na skrzyni, sprawdź jak możesz)
+    - Aernst jest chłodny, może mówić coś w stylu „z tego już nic nie będzie, pani kapitan” „więcej pożytku z niego będzie w dokach” „ nie ufam tym czubkom z instytutu”
+    -Vittun jest trochę taki patches „Kapitan wie przecież najlepiej” „Szkoda żeby się zmarnowało” „Ile odciętych palców to kara, a ile to nauczka?” „Jeśli nie my, to padłoby na kogo innego”
+    
+Mind you z nimi nie da się pogoadać, mówią bardziej jakieś echa
+   
+Elian:
+
+- ludzki mężczyzna i kobieta w ciemnych szatach i przesłoniętych chustą twarzach.
+- Elian od razu rozpoznaje ich jako heparskich inkwizytorów, bezimiennych, w anonimowej służbie zakonu. Być może kiedyś się z nimi sparował, być może byłego instruktorzy, nie ma to znaczenia.
+- Mężczyzna walczy podobnie do Eliana, mówi rzeczy typu „ musisz przezwyciężyć swoją naturę” „nie masz co liczyć na dar od boga” „kościół ma pożytek tylko z twojej stali, elfie.”
+- Kobieta posługuje się łańcuchami „Twoja rasa, krew i ciało nie są miłe Panu, a więc i twoje modlitwy i wołania muszą być głośniejsze, żebyś dostąpił jego błogosławieństw”
 
 
 
@@ -51,13 +68,13 @@ Może kontynuujmy naszą grę.
 - o _kościele_ - CS wie o obecności eteytów na wyspie, zna ich filozofie i widzi ich jako krótkowzrocznych głupcców, którzy prędzej czy później przejrzą na oczy, ze wyspa da im nauczkę. Tutaj drobne zawahanie (koniec końców wyspa nie śpieszyła u z pomocą jak był notorycznie zabijany przez hitlera do tego stopnia, że musiał się rozdzielić na dwa, ale o tym nie mówi, wystarczy dodać, że mówi to bez przekonania, bardziej jak frazes). CS mówi, że właściwie, to znalazł was tylko dzięki eterytom, bo jego uwadze nie umknęła dziwna anomalia, którą tropił (Katastion), ale zgubił jej trop gdzieś w podziemnych korytarzach i nie jest w stanie ustalić gdzie teraz się znajduje. Jest natomiast przekonany, ze na pewno niedługo da o sobie znać.
 - _o podziemnych korytarzach_ - CS uzna, że nie musi juz tego ukrywać, że Isshila jaką znają stoi na fundamentach czegoś starszego, bezpańskiego. Korytarze i ruiny, które rozciągają się pod całą wyspą to jedyna pozostałość po dawnych mieszkańcach wyspy, zwanych **Lidrynami**. Ci dogłębnie badali prawa i zasady, który kieruje się wyspa, ale niestety nie zostawili po sobie wiele wiedzy, z której dzisiejsi umieliby skorzystać. Ironiczne, że zniknęli, zważywszy na to, że byli mistrzami wszelkich dróg i ścieżek wyspy. Ich los owiany jest tajemnicą, ale Draoimor Przestrogi Mądrości doszedł do wniosku, że ich harmonijna cywilizacja została zmyta z powierzchni ziemi przez zagrożenie zza morza. CS może puścić ponownie oko do kontynentalsów, czy nie mają może pomysłów czym to zagrożenie zza morza mogło być.
 
-- Przypomnij sobie (i mi) tylko imię hitleriny oraz jej następczyni, jak będą pytać o dnu thuaidh to niech się skrzywi na wspomnienie, ale niech nie mówi jasno, ze Draoimor Przestrogi Mądrości kurwą jest, może być chłodny, że to Dun Thuaidh to miasto, które wyrosło wbrew woli wyspy, i do dziś jest przytułkiem dla intryg planów i sekretów, zarówno isshilan jak i cudzoziemców, którzy wybrali je sobie za port
+- Sirsze oraz jej następczyni, jak będą pytać o dnu thuaidh to niech się skrzywi na wspomnienie, ale niech nie mówi jasno, ze Draoimor Przestrogi Mądrości kurwą jest, może być chłodny, że to Dun Thuaidh to miasto, które wyrosło wbrew woli wyspy, i do dziś jest przytułkiem dla intryg planów i sekretów, zarówno isshilan jak i cudzoziemców, którzy wybrali je sobie za port
 
 
 
-	### Część 3: Corridors of Katabasis
+### Część 3: Corridors of Katabasis
  
-4. Katabaza opisy, jakis fajny landscape moze w oddali
+Katabaza opisy, jakis fajny landscape moze w oddali
 ### Część 4: Podróż do wehikułu
 
 
