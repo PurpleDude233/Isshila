@@ -7,7 +7,12 @@
 
 
 
-### Część 1: Tajemnicza sylwetka part.3
+### Część 1: 
+Wskutek feralnej konfrontacji z zarodnikowym dzikiem gracze odnajdują szczelinę w skale, prowadzącą do podziemnych korytarzy Lidry. Zależnie od tego jak do tego podejdą, spotkają Cu Sitha (Maciej):
+
+
+
+### Część 2: Tajemnicza sylwetka part.3 
 Może kontynuujmy naszą grę.
 Gdzie mój dywan moja droga? 
 I co, było warto? (warto zrobić sobie kuku w oko)
@@ -16,16 +21,22 @@ Znalazłaś swoją bramę do czwartej siostry?
 Powiedz proszę jakie kłamstwa nasunęły już ci się na usta w pogoni z prawdą?
 czy podzienie okazało się tak ciekawe jak liczyłaś?
 
+- jeśli wrócą się po Laurusa, spotkają CuSitha przed szczelinąjak z nim wrócą
 
-### Część 2: Pobojowisko oczami reszty maciej
-Dym i para łączą się w nieprzeniknianą, szarą kurtyną, falującą na wietrze nad pobojowiskiem. 
-Popękana i dotknięta ogniem ziemia tli się wciąż i syczy jakby z bólu. 
-Pojedyncze wilki skomląc bardziej ze strachu niż z bólu rozpierzchły się, zostawiając to, co zostało z ciał zabitych eterytów.
+- jeśli oleją Laurusa i popędzą wgłąb szczeliny, spotkają go krocząc po ciemku przez korytarze.
 
-W okolicy  dalej widać kolumny pary i pyłu, buchające z miejsc, gdzie jeszcze przed chwilą stali gorliwi kościelnicy, pobłogosławieni przez Turygnas.
-Powalony przez was Laurus wydaje się nietknięty czarem. 
+Cu Sith, na pierwszy rzut oka groźny, szybko postara się zebrać na ogładę, z którą mieli dotychczas do czynienia. Przykładowe tematy:
 
-Skowyt katastiona, który zabiera za sobą zasłonę pary, powoli odsłaniając skalę zniszczeń. Nie ostał się jeden namiot, ani jedna księga, ali jedna śrubka Świętego Turygnasu.
+- _czas_ - minęło go dużo odkąd ostatni raz się widzieli, ale nie miał wątpliwości, że drużyna żyje i ma się dobrze, martwił się jedynie, że nieprędko przyjdzie im się ponownie spotkać *wink wink do lycry czy coś
+
+- _spotkanie w ruinach_ - CS (M) nie wie o spotkaniu z CS (B), ale bardzo szybko domyśli się, że mogło do niego dojść, nie chce wchodzić w szczegóły rozdzielenia CS na M i B, zamiast tego przeprosi ich za nieporozumienie i doda, że w rzeczy samej ma obowiązki wobec krainy, jej ludu i gości, o których sam często nie wie i nie pamięta, prosząc o wyrozumiałość.
+
+- _obowiązku wobec krainy_ - jeśli gracze będą nalegać na drążenie powyższego, ten doda, że jego zadaniem jest doglądać Draoimorów i innych Ais Selainne, ale że to nie znaczy, że wyspa nie ma przed nim tajemnic.
+
+- _o Ais Selainne_ - rodacy isshili, Ais (lud) Selainne (nazwa krainy), słowo Isshila to zagraniczne przekręcenie słowa na isshilan. CS jest obdarzony przez wyspę szczególną, niemalże niepowtarzalną rolą jako **Ten, który trwa przez księżyce**. Oznacza to, że ma dostęp do wspomnień swoich poprzednich wcieleń i korzysta z ich mądrości, by prowadzić i doradzać pozostałym. To samotna ścieżka, która rzadko kiedy splata się z inną na długo.
+  
+- o _kościele_ - CS wie o obecności eteytów na wyspie, zna ich filozofie i widzi ich jako krótkowzrocznych głupcców, którzy prędzej czy później przejrzą na oczy, ze wyspa da im nauczkę. Tutaj drobne zawahanie (koniec końców wyspa nie śpieszyła u z pomocą jak był notorycznie zabijany przez hitlera do tego stopnia, że musiał się rozdzielić na dwa, ale o tym nie mówi, wystarczy dodać, że mówi to bez przekonania, bardziej jak frazes). CS mówi, że właściwie, to znalazł was tylko dzięki eterytom, bo jego uwadze nie umknęła dziwna anomalia, którą tropił (Katastion), ale zgubił jej trop gdzieś w podziemnych korytarzach i nie jest w stanie ustalić gdzie teraz się znajduje. Jest natomiast przekonany, ze na pewno niedługo da o sobie znać.
+
 
 
 
